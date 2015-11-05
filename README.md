@@ -15,4 +15,6 @@ Full project discussion [here](https://github.com/dariusk/NaNoGenMo-2015/issues/
 * drink words: http://adjective1.com/for-drinks/, http://recipes.wikia.com/wiki/Liquids_and_beverages
 * body parts: https://www.ego4u.com/en/cram-up/vocabulary/body-parts
 * relatives:
+* brands: http://www.namedevelopment.com/brand-names.html
+
 

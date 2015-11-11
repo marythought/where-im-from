@@ -18,7 +18,8 @@
     "mocha": "^2.3.3"
   },
   "dependencies": {
-    "express": "^4.13.3"
+    "express": "^4.13.3",
+    "rita": "^1.1.19"
   },
   "engines": {
     "node": "0.12.7"

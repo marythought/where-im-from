@@ -119,6 +119,7 @@ function renderPoem(){
   poem += " by <a href='http://www.georgeellalyon.com/where.html'>George Ella Lyon</a>."
   poem += " A project for <a href='https://github.com/dariusk/NaNoGenMo-2015'>#NaNoGenMo."
   return poem;
+}
 
 app.get('/', function (req, res) {
   res.send(renderPoem());

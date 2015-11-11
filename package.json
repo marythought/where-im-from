@@ -4,7 +4,8 @@
   "description": "experiment for nanogenmo 2015",
   "main": "index.js",
   "scripts": {
-    "test": "mocha"
+    "test": "mocha",
+    "start": "node index.js"
   },
   "repository": {
     "type": "git",
@@ -18,5 +19,8 @@
   },
   "dependencies": {
     "express": "^4.13.3"
+  },
+  "engines": {
+    "node": "0.12.7"
   }
 }

@@ -117,9 +117,8 @@ function renderPoem(){
   poem += "leaf-fall from the family tree.<br></p>";
   poem += "<br><p> poem generator by <a href='http://www.marydickson.com'>Mary Dickson</a> based on the original";
   poem += " by <a href='http://www.georgeellalyon.com/where.html'>George Ella Lyon</a>."
-  poem += " A project for <a href='https://github.com/dariusk/NaNoGenMo'>#NaNoGenMo."
+  poem += " A project for <a href='https://github.com/dariusk/NaNoGenMo-2015'>#NaNoGenMo."
   return poem;
-}
 
 app.get('/', function (req, res) {
   res.send(renderPoem());

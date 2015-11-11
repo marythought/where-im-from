@@ -1,1 +1,2 @@
-bot: node index.js
+web: bin/web
+worker: bin/worker

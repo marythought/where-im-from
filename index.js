@@ -1,5 +1,6 @@
 var express = require('express');
 var app = express();
+
 var rita = require('rita');
 var lexicon = new rita.RiLexicon();
 var brands = require('./lib/brands').Brands;
@@ -124,9 +125,8 @@ app.get('/', function (req, res) {
   res.send(renderPoem());
 });
 
-var server = app.listen(3000, function () {
-  var host = server.address().address;
-  var port = server.address().port;
+var port = process.env.PORT || 3000;
 
-  console.log('Example app listening at http://%s:%s', host, port);
+app.listen(port, function() {
+    console.log('Our app is running on http://localhost:' + port);
 });

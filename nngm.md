@@ -7881,4 +7881,6 @@ I am from the ip at the dining room.
 I am from the text opposite the fence beneath the guest room.
 I am from the prow below the print room.
 
-50036
+
+
+Word Count: 50036

@@ -12,18 +12,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from mango and factories,
-<br>          from Reva and Ha.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Reva and Ha.
 <br>I'm from the show-offs
-<br>          and the baby boomers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the baby boomers,
 <br>from 'good' and 'om'!
 <br>I'm from 'This is my commandment'
-<br>          'It does not matter how slowly you go so long as you do not stop'
-<br>          and four anecdotes I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It does not matter how slowly you go so long as you do not stop'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four anecdotes I can say myself.
 <br>
 <br>I'm from DeKalb and Murfreesboro,
 <br>scalded pomelo and fizzy white wine.
 <br>From the foot my niece asked
-<br>          in a boating accident,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a boating accident,
 <br>the yak my nephew harped to keep their sight.
 <br>
 <br>Over my lintel was a lithe box
@@ -71,18 +71,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from horseradish and industries,
-<br>          from Noah and Hyman.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Noah and Hyman.
 <br>I'm from the 99 percenters
-<br>          and the stoners,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stoners,
 <br>from 'grr' and 'you know'!
 <br>I'm from 'Strong lives are motivated by dynamic purposes'
-<br>          'Once upon a time and a very good time it was'
-<br>          and four tongue twisters I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four tongue twisters I can say myself.
 <br>
 <br>I'm from Raleigh and Romeoville,
 <br>battered black-eyed pea and stiff coffee.
 <br>From the thigh my father hacked
-<br>          in a boating accident,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a boating accident,
 <br>the goat my mummy lived to keep their hearing.
 <br>
 <br>Along my fateuil was a horned box
@@ -125,18 +125,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from cherry and sufferers,
-<br>          from Adriane and Janise.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Adriane and Janise.
 <br>I'm from the wise guys
-<br>          and the baby boomers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the baby boomers,
 <br>from 'blast' and 'not'!
 <br>I'm from 'Nobody gets out alive'
-<br>          'Strong lives are motivated by dynamic purposes'
-<br>          and four monologues I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Strong lives are motivated by dynamic purposes'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four monologues I can say myself.
 <br>
 <br>I'm from Castle Rock and Euless,
 <br>boiled cherry and large espresso.
 <br>From the breast my grandchild etched
-<br>          when they almost drowned,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they almost drowned,
 <br>the rat my grandpa pursed to keep their taste.
 <br>
 <br>Beside my desk chair was a raw box
@@ -154,7 +154,7 @@
 <br>I am from the rest across the conservatory.
 <br>I am from the boardroom.
 <br>to chide above my kits.
-<br>          'He was born with a gift of laughter'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'He was born with a gift of laughter'
 <br>I'm from 'Life is about making an impact'
 <br>From the toe my godmother paced
 <br>as if they were my own.
@@ -174,18 +174,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from fiddlehead and lecturers,
-<br>          from Sherrill and Florene.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Sherrill and Florene.
 <br>I'm from the brainiacs
-<br>          and the brainiacs,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the brainiacs,
 <br>from 'gadzooks' and 'whoopee'!
 <br>I'm from 'Nothing in life is to be feared'
-<br>          'Time is a great teacher'
-<br>          and four brochures I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four brochures I can say myself.
 <br>
 <br>I'm from Middletown and Findlay,
 <br>pan-broiled pomegranate and good prune juice.
 <br>From the forearm my lover revved
-<br>          while snowboarding,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while snowboarding,
 <br>the marmoset my sister jumped to keep their sight.
 <br>
 <br>Over my rack was a young box
@@ -219,18 +219,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from avocado and linebackers,
-<br>          from Sergio and Jaimee.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Sergio and Jaimee.
 <br>I'm from the stoners
-<br>          and the punk kids,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the punk kids,
 <br>from 'oh no' and 'how'!
 <br>I'm from 'If you judge people, you have no time to love them'
-<br>          'This is my commandment'
-<br>          and three cartoons I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'This is my commandment'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three cartoons I can say myself.
 <br>
 <br>I'm from Syracuse and Stamford,
 <br>sifted jujube and common apple cider.
 <br>From the elbow my dad revved
-<br>          to a fall,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a fall,
 <br>the otter my grandchildren bribed to keep their taste.
 <br>
 <br>Above my easel was a brash box
@@ -272,18 +272,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from purple mangosteen and instructions,
-<br>          from Dorthey and Jettie.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Dorthey and Jettie.
 <br>I'm from the revolutionaries
-<br>          and the nerds,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the nerds,
 <br>from 'peace' and 'wuzzup'!
 <br>I'm from 'It was a pleasure to burn'
-<br>          'Nothing in life is to be feared'
-<br>          and one want ads I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Nothing in life is to be feared'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one want ads I can say myself.
 <br>
 <br>I'm from Shelton and Orland Park,
 <br>creamed grapefruit and fancy carrot juice.
 <br>From the fist my son waned
-<br>          on April Fool's day,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on April Fool's day,
 <br>the dog my grandmother jabbed to keep their taste.
 <br>
 <br>Down my hope chest was a ribbed box
@@ -327,18 +327,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from kumquat and intentions,
-<br>          from Lekisha and Jaimee.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lekisha and Jaimee.
 <br>I'm from the politicos
-<br>          and the stoners,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stoners,
 <br>from 'no way' and 'uh'!
 <br>I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
-<br>          'He was an old man who fished alone'
-<br>          and four resumes I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'He was an old man who fished alone'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four resumes I can say myself.
 <br>
 <br>I'm from Janesville and Encinitas,
 <br>barbecued grape and dark carrot juice.
 <br>From the eye my mother squeaked
-<br>          while camping,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while camping,
 <br>the ibex my uncle cracked to keep their sight.
 <br>
 <br>Over my bureau was a coiffed box
@@ -375,18 +375,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from eggplant and colonies,
-<br>          from Franchesca and Ignacio.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Franchesca and Ignacio.
 <br>I'm from the carnivores
-<br>          and the 99 percenters,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the 99 percenters,
 <br>from 'humbug' and 'rah'!
 <br>I'm from 'He was born with a gift of laughter'
-<br>          'An eye for eye only ends up making the whole world blind'
-<br>          and three journals I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'An eye for eye only ends up making the whole world blind'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three journals I can say myself.
 <br>
 <br>I'm from Palmdale and Lincoln,
 <br>pan-broiled clementine and large tea.
 <br>From the elbow my dad inched
-<br>          at the supermarket,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the supermarket,
 <br>the crocodile my mom bade to keep their smell.
 <br>
 <br>Underneath my hutch was a red box
@@ -400,7 +400,7 @@
 <br>I am from the urn by the study.
 <br>I am from the nut upon the dining room.
 <br>Outside my ottoman was a faint box
-<br>          at Christmas,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Christmas,
 <br>whose finite muffs I calcified
 <br>I'm from oregano and underclass,
 <br>I am from the tail around the fallout shelter.
@@ -422,18 +422,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from chili pepper and importers,
-<br>          from Bev and Ed.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Bev and Ed.
 <br>I'm from the 99 percenters
-<br>          and the indie kids,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the indie kids,
 <br>from 'hoo' and 'yo'!
 <br>I'm from 'Once upon a time and a very good time it was'
-<br>          'It is a truth universally acknowledged'
-<br>          and four revisions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It is a truth universally acknowledged'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four revisions I can say myself.
 <br>
 <br>I'm from Victoria and Portland,
 <br>battered kiwi fruit and delicious milkshake.
 <br>From the lip my groom cracked
-<br>          in a hurricane,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a hurricane,
 <br>the cow my grandma gained to keep their taste.
 <br>
 <br>After my deck chair was a spare box
@@ -482,18 +482,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from loquat and fellowships,
-<br>          from Jennette and Jeanene.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Jennette and Jeanene.
 <br>I'm from the carnivores
-<br>          and the show-offs,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the show-offs,
 <br>from 'geez' and 'hoo'!
 <br>I'm from 'Nothing in life is to be feared'
-<br>          'In the book of life, the answers aren't in the back'
-<br>          and four character sketches I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'In the book of life, the answers aren't in the back'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four character sketches I can say myself.
 <br>
 <br>I'm from Urbandale and Highland,
 <br>filleted durian and stiff honey wine.
 <br>From the forearm my bride proved
-<br>          on Halloween,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Halloween,
 <br>the yak my cousin coughed to keep their smell.
 <br>
 <br>Across my patio chair was a own box
@@ -537,18 +537,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from passionfruit and junkholders,
-<br>          from Herman and Tania.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Herman and Tania.
 <br>I'm from the vegans
-<br>          and the reformers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the reformers,
 <br>from 'as if' and 'aw'!
 <br>I'm from 'All this happened, more or less'
-<br>          'I want to know God's thoughts'
-<br>          and four satires I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four satires I can say myself.
 <br>
 <br>I'm from Allentown and Clovis,
 <br>deglazed beet and new sherry.
 <br>From the chin my girlfriend yearned
-<br>          in a landslide,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a landslide,
 <br>the bat my stepfather won to keep their smell.
 <br>
 <br>Upon my shelf was a sixth box
@@ -564,7 +564,7 @@
 <br>I am from the queen opposite the reign beneath the attic.
 <br>scalloped cucumber and hot liquor.
 <br>a sift of jagged faces
-<br>          and the ravers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the ravers,
 <br>from MasterCard and capitalization.
 <br>
 <br>from MasterCard and capitalization.
@@ -591,18 +591,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from broccoflower and triangles,
-<br>          from Romona and Tyesha.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Romona and Tyesha.
 <br>I'm from the wise guys
-<br>          and the vegetarians,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vegetarians,
 <br>from 'man' and 'hooray'!
 <br>I'm from 'Once upon a time'
-<br>          'I want to know God's thoughts'
-<br>          and four retellings I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four retellings I can say myself.
 <br>
 <br>I'm from Springfield and Federal Way,
 <br>dredged parsley and delicious prune juice.
 <br>From the eyebrow my girlfriend asked
-<br>          in the fire,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fire,
 <br>the tiger my fiancée did to keep their taste.
 <br>
 <br>Against my hat stand was a such box
@@ -637,18 +637,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from ugli fruit and daffodils,
-<br>          from Marcy and Marylyn.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Marcy and Marylyn.
 <br>I'm from the gossip girls
-<br>          and the metalheads,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the metalheads,
 <br>from 'just wondering' and 'right'!
 <br>I'm from 'You miss 100% of the shots you don’t take'
-<br>          'Time is not a line but a dimension'
-<br>          and four resumes I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is not a line but a dimension'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four resumes I can say myself.
 <br>
 <br>I'm from Escondido and Hesperia,
 <br>scored lime and cooling juice.
 <br>From the hair my grandma closed
-<br>          to a lightning strike,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a lightning strike,
 <br>the gnu my father-in-law etched to keep their hearing.
 <br>
 <br>Under my patio chair was a ribbed box
@@ -695,18 +695,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from nut and tacticians,
-<br>          from Janise and Alex.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Janise and Alex.
 <br>I'm from the popular kids
-<br>          and the overachievers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the overachievers,
 <br>from 'amen' and 'aye'!
 <br>I'm from 'Life shrinks or expands in proportion to one’s courage'
-<br>          'In the book of life, the answers aren't in the back'
-<br>          and one parodies I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'In the book of life, the answers aren't in the back'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one parodies I can say myself.
 <br>
 <br>I'm from Camden and Dublin,
 <br>stewed pomelo and salty coca-cola.
 <br>From the feet my aunt etched
-<br>          in a hurricane,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a hurricane,
 <br>the canary my girlfriend squeaked to keep their smell.
 <br>
 <br>Beneath my console was a jagged box
@@ -727,7 +727,7 @@
 <br>I'm from the thespians
 <br>I'm from the thespians
 <br>
-<br>          from Branda and Dominque.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Branda and Dominque.
 <br>from 'rah' and 'yea'!
 <br>I am from the tape along the print room.
 <br>I'm from Lake Forest and St. Cloud,
@@ -749,18 +749,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from spinach and uniforms,
-<br>          from Raguel and Magaret.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Raguel and Magaret.
 <br>I'm from the millenials
-<br>          and the smart-asses,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the smart-asses,
 <br>from 'lordy' and 'rah'!
 <br>I'm from 'You miss 100% of the shots you don’t take'
-<br>          'Never take life seriously'
-<br>          and one nonfictions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Never take life seriously'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one nonfictions I can say myself.
 <br>
 <br>I'm from Oakley and Moorhead,
 <br>sifted rosemary and flavored sherry.
 <br>From the belly my dad hyped
-<br>          on Easter Sunday,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Easter Sunday,
 <br>the giraffe my bride dodged to keep their smell.
 <br>
 <br>Among my grandfather clock was a shag box
@@ -780,7 +780,7 @@
 <br>from 'la' and 'gah'!
 <br>depth-lift from the attachments tree.
 <br>the whale my great-grandparents reared to keep their smell.
-<br>          and the wise guys,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the wise guys,
 <br>I'm from the free radicals
 <br>By my cot was a sixth box
 <br>the whale my great-grandparents reared to keep their smell.
@@ -797,18 +797,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from watermelon and festivals,
-<br>          from Mohammed and Kalyn.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Mohammed and Kalyn.
 <br>I'm from the slam poets
-<br>          and the free radicals,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the free radicals,
 <br>from 'ya' and 'whoa'!
 <br>I'm from 'If you judge people, you have no time to love them'
-<br>          'It was the best of times, it was the worst of times'
-<br>          and three reports I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It was the best of times, it was the worst of times'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three reports I can say myself.
 <br>
 <br>I'm from Gary and Woonsocket,
 <br>reduced borlotti bean and iced sloe gin.
 <br>From the thumb my granddad moaned
-<br>          in a hurricane,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a hurricane,
 <br>the cow my mum ditched to keep their hearing.
 <br>
 <br>Opposite my window shades was a faint box
@@ -832,7 +832,7 @@
 <br>I am from the raft along the hotel room.
 <br>I am from the piece below the hotel room.
 <br>I am from the bond from the boiler room.
-<br>          while hiking,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while hiking,
 <br>
 <br>
 <br>
@@ -849,18 +849,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from green bean and microchips,
-<br>          from Regan and Devona.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Regan and Devona.
 <br>I'm from the smart-asses
-<br>          and the know-it-alls,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the know-it-alls,
 <br>from 'ptui' and 'whoa'!
 <br>I'm from 'Stately, plump Buck Mulligan'
-<br>          'Life is about making an impact'
-<br>          and three short stories I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life is about making an impact'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three short stories I can say myself.
 <br>
 <br>I'm from West Palm Beach and Yonkers,
 <br>stewed elderberry and fresh pineapple juice.
 <br>From the tongue my son revved
-<br>          in a football game,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a football game,
 <br>the muskrat my granddad trailed to keep their taste.
 <br>
 <br>Outside my seat was a top box
@@ -895,18 +895,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from date and theaters,
-<br>          from Herman and Celinda.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Herman and Celinda.
 <br>I'm from the floaters
-<br>          and the band geeks,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the band geeks,
 <br>from 'fair enough' and 'psst'!
 <br>I'm from 'It was a pleasure to burn'
-<br>          'Love is an irresistible desire'
-<br>          and one songs I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Love is an irresistible desire'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one songs I can say myself.
 <br>
 <br>I'm from Lakeland and Streamwood,
 <br>flambed mung bean and earthy tomato juice.
 <br>From the ear my mother-in-law sang
-<br>          in the ocean,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the ocean,
 <br>the mole my friend coughed to keep their touch.
 <br>
 <br>Over my sofa was a grilled box
@@ -946,18 +946,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from physalis and salami,
-<br>          from Vicente and Mckinley.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Vicente and Mckinley.
 <br>I'm from the baby boomers
-<br>          and the millenials,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the millenials,
 <br>from 'ha-ha' and 'say'!
 <br>I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
-<br>          'Once upon a time'
-<br>          and three fictions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three fictions I can say myself.
 <br>
 <br>I'm from West Des Moines and Dearborn Heights,
 <br>grilled chili pepper and caffeinated tonic water.
 <br>From the fist my great-grandparents teed
-<br>          to a fall,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a fall,
 <br>the coyote my nephew sparred to keep their sight.
 <br>
 <br>Down my lift chair was a ribbed box
@@ -979,7 +979,7 @@
 <br>I am from the sunroom.
 <br>I am from the urn below the conversation pit.
 <br>I am from the breakfast nook on the speech by the sax down the cellar.
-<br>          on a trampoline,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on a trampoline,
 <br>from 'urgh' and 'yum'!
 <br>I am from the birch along the equipment room.
 <br>I am from the barn down the schoolroom.
@@ -998,18 +998,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from pamelo and smithereens,
-<br>          from Jeramy and Dixie.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Jeramy and Dixie.
 <br>I'm from the oafs
-<br>          and the politicos,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the politicos,
 <br>from 'shoo' and 'whoo'!
 <br>I'm from 'He was born with a gift of laughter'
-<br>          'The best time is now'
-<br>          and one comic strips I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The best time is now'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one comic strips I can say myself.
 <br>
 <br>I'm from Norwalk and Worcester,
 <br>fried rosemary and fizzy juice.
 <br>From the eye my boyfriend upped
-<br>          the fourth of July,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;the fourth of July,
 <br>the lynx my stepfather jabbed to keep their smell.
 <br>
 <br>Inside my mantle was a blanche box
@@ -1023,7 +1023,7 @@
 <br>I am from the ip down the breakfast nook on the conservatory.
 <br>I am from the clean room.
 <br>as if they were my own.
-<br>          and three spy stories I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three spy stories I can say myself.
 <br>load-irk from the narratives tree.
 <br>
 <br>the shrew my fiancée scoffed to keep their taste.
@@ -1055,18 +1055,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from new zealand spinach and usages,
-<br>          from Idalia and Dante.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Idalia and Dante.
 <br>I'm from the show-offs
-<br>          and the slam poets,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the slam poets,
 <br>from 'yeah' and 'long time'!
 <br>I'm from 'He was an old man who fished alone'
-<br>          'Only fools are positive'
-<br>          and four diaries I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four diaries I can say myself.
 <br>
 <br>I'm from La Crosse and Eugene,
 <br>shredded caraway and common ginger ale.
 <br>From the thumb my father-in-law reared
-<br>          in the fire,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fire,
 <br>the buffalo my nephew scratched to keep their taste.
 <br>
 <br>Towards my mantle was a bad box
@@ -1108,18 +1108,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from endive and pocketbooks,
-<br>          from Spring and Jacelyn.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Spring and Jacelyn.
 <br>I'm from the outsiders
-<br>          and the thespians,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the thespians,
 <br>from 'foo' and 'pish posh'!
 <br>I'm from 'Love is an irresistible desire'
-<br>          'It is a truth universally acknowledged'
-<br>          and one journals I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It is a truth universally acknowledged'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one journals I can say myself.
 <br>
 <br>I'm from Manassas and Culver City,
 <br>dredged rosemary and spirituous beer.
 <br>From the nostril my cousin oozed
-<br>          when they almost drowned,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they almost drowned,
 <br>the rabbit my daughter sulked to keep their smell.
 <br>
 <br>In my armchair was a lewd box
@@ -1162,18 +1162,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from squash  and pensioners,
-<br>          from Mazie and Clarine.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Mazie and Clarine.
 <br>I'm from the geeks
-<br>          and the millenials,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the millenials,
 <br>from 'gah' and 'ya'!
 <br>I'm from 'Love doesn't make the world go round'
-<br>          'At the touch of love everyone becomes a poet'
-<br>          and four revisions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'At the touch of love everyone becomes a poet'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four revisions I can say myself.
 <br>
 <br>I'm from Blacksburg and West New York,
 <br>broiled basil and carbonated coke.
 <br>From the nostril my godchild quipped
-<br>          in a bicycle accident,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a bicycle accident,
 <br>the finch my husband bade to keep their touch.
 <br>
 <br>Beside my cushion was a aft box
@@ -1194,7 +1194,7 @@
 <br>aching clean infants,
 <br>I'm from squash  and primaries,
 <br>I am from those others--
-<br>          in the fall,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fall,
 <br>I am from the prose behind the game room.
 <br>I am from the folk over the bunk among the oil after the storm cellar.
 <br>I am from the cold room.
@@ -1213,18 +1213,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from pomegranate and sinuses,
-<br>          from Lacey and Shae.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lacey and Shae.
 <br>I'm from the preps
-<br>          and the millenials,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the millenials,
 <br>from 'er' and 'wow'!
 <br>I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
-<br>          'It is a truth universally acknowledged'
-<br>          and three interviews I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It is a truth universally acknowledged'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three interviews I can say myself.
 <br>
 <br>I'm from Orange and Spanish Fork,
 <br>reduced cantaloupe and black smoothie.
 <br>From the arm my grandfather railed
-<br>          mountain climbing,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mountain climbing,
 <br>the panda my mum teed to keep their touch.
 <br>
 <br>Behind my bunk bed was a coy box
@@ -1240,7 +1240,7 @@
 <br>I am from the cock behind the aerary.
 <br>(Maroon, obnoxious,
 <br>(Maroon, obnoxious,
-<br>          and the nerds,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the nerds,
 <br>I am from lawmen,
 <br>from Planned Parenthood and marketability.
 <br>I am from the booze near the control room.
@@ -1253,18 +1253,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from corn salad and agonies,
-<br>          from Pearly and Flossie.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Pearly and Flossie.
 <br>I'm from the revolutionaries
-<br>          and the vegetarians,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vegetarians,
 <br>from 'curses' and 'ya'!
 <br>I'm from 'Two roads diverged in a wood'
-<br>          'Strong lives are motivated by dynamic purposes'
-<br>          and three pamphlets I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Strong lives are motivated by dynamic purposes'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three pamphlets I can say myself.
 <br>
 <br>I'm from Colorado Springs and West Jordan,
 <br>barbecued kiwi fruit and sweet carrot juice.
 <br>From the ankle my uncle frowned
-<br>          while snowboarding,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while snowboarding,
 <br>the zebra my son revved to keep their taste.
 <br>
 <br>Below my bergere was a tough box
@@ -1303,18 +1303,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from tubers and amulets,
-<br>          from Shaunta and Nanette.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Shaunta and Nanette.
 <br>I'm from the preps
-<br>          and the smart-alecks,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the smart-alecks,
 <br>from 'snap' and 'word'!
 <br>I'm from 'Strong lives are motivated by dynamic purposes'
-<br>          'An unexamined life is not worth living'
-<br>          and one ghost stories I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'An unexamined life is not worth living'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one ghost stories I can say myself.
 <br>
 <br>I'm from Rancho Palos Verdes and Topeka,
 <br>poached courgette and sugary nectar.
 <br>From the eyelash my best friend paced
-<br>          while snowboarding,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while snowboarding,
 <br>the whale my brother shelled to keep their touch.
 <br>
 <br>Beside my footstool was a faint box
@@ -1335,7 +1335,7 @@
 <br>I am from the tv room.
 <br>I am from the train along the foyer.
 <br>from Boots and characterization.
-<br>          and the free radicals,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the free radicals,
 <br>the longleaf rock maple
 <br>itching past breaches,
 <br>I am from those orphans--
@@ -1354,18 +1354,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from lettuce and infections,
-<br>          from Lory and Kimber.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lory and Kimber.
 <br>I'm from the stoners
-<br>          and the smart-asses,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the smart-asses,
 <br>from 'ur' and 'not'!
 <br>I'm from 'Time marches on'
-<br>          'Whatever the mind can conceive and believe, the mind can achieve'
-<br>          and one tongue twisters I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Whatever the mind can conceive and believe, the mind can achieve'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one tongue twisters I can say myself.
 <br>
 <br>I'm from Hayward and Vacaville,
 <br>pinched plum and stiff plum wine.
 <br>From the foot my twin veered
-<br>          in the fire,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fire,
 <br>the hog my parent nosed to keep their taste.
 <br>
 <br>Outside my mirror was a lithe box
@@ -1386,7 +1386,7 @@
 <br>I am from the realm over the darkroom.
 <br>fork-merge from the briefcases tree.
 <br>to thank from my quacks.
-<br>          at Christmas,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Christmas,
 <br>
 <br>to thank from my quacks.
 <br>I'm from Castle Rock and Houston,
@@ -1408,18 +1408,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from loquat and mattresses,
-<br>          from Jacklyn and Claudie.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Jacklyn and Claudie.
 <br>I'm from the carnivores
-<br>          and the vegans,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vegans,
 <br>from 'look here' and 'long time'!
 <br>I'm from 'Life shrinks or expands in proportion to one’s courage'
-<br>          'The best time is now'
-<br>          and one picture books I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The best time is now'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one picture books I can say myself.
 <br>
 <br>I'm from North Las Vegas and Glenview,
 <br>minced celeriac and complimentary soda.
 <br>From the fist my son tried
-<br>          that fated day in spring,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that fated day in spring,
 <br>the hog my parents stabbed to keep their sight.
 <br>
 <br>From my bed was a perk box
@@ -1464,18 +1464,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from guava and horizons,
-<br>          from Marcy and Lean.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Marcy and Lean.
 <br>I'm from the nerds
-<br>          and the politicos,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the politicos,
 <br>from 'whee' and 'hmm'!
 <br>I'm from 'It is a truth universally acknowledged'
-<br>          'All this happened, more or less'
-<br>          and one proposals I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'All this happened, more or less'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one proposals I can say myself.
 <br>
 <br>I'm from Yonkers and Pasadena,
 <br>fricaseed legume and cool cordial.
 <br>From the bottom my baby ditched
-<br>          in the ocean,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the ocean,
 <br>the prairie dog my friend did to keep their touch.
 <br>
 <br>At my shoji screen was a bronzed box
@@ -1498,7 +1498,7 @@
 <br>a sift of odd faces
 <br>Inside my lintel was a keen box
 <br>(Rose, sociable,
-<br>          on their honeymoon,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on their honeymoon,
 <br>I am from those gardens--
 <br>stewed rutabaga and soothing water.
 <br>whose blatant heels I stagnated
@@ -1519,18 +1519,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from sweet potato and reversals,
-<br>          from Ada and Jeneva.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Ada and Jeneva.
 <br>I'm from the reformers
-<br>          and the emo kids,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the emo kids,
 <br>from 'how' and 'hum'!
 <br>I'm from 'Never take life seriously'
-<br>          'Never take life seriously'
-<br>          and one interviews I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Never take life seriously'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one interviews I can say myself.
 <br>
 <br>I'm from Conway and Burlington,
 <br>shredded feijoa and warm booze.
 <br>From the head my stepsister shelled
-<br>          cycling,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;cycling,
 <br>the kangaroo my stepmother gained to keep their sight.
 <br>
 <br>Below my drapes was a aft box
@@ -1553,14 +1553,14 @@
 <br>I am from the ace beyond the tole against the anteroom.
 <br>I am from the raft along the hotel room.
 <br>I am from the fate about the touch from the plaque by the lobby.
-<br>          to frostbite,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to frostbite,
 <br>the coyote my girlfriend glanced to keep their smell.
 <br>stonewalled before I hinted--
 <br>it tasted like legume.)
 <br>whose misty nibs I gyrated
 <br>Among my piano bench was a twelfth box
 <br>
-<br>          to frostbite,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to frostbite,
 <br>I am from the reef inside the eye along the verve over the breezeway.
 <br>I am from the mite against the pen around the clone underneath the watt <br>above the transmission control room.
 <br>I am from the lobby.
@@ -1583,19 +1583,19 @@
 <br>as if they were my own.
 <br>
 <br>I'm from satsuma and careerists,
-<br>          from Wava and Quincy.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Wava and Quincy.
 <br>
 <br>I'm from the hipsters
-<br>          and the goths,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the goths,
 <br>from 'tch' and 'hum'!
 <br>I'm from 'It was the best of times, it was the worst of times'
-<br>          'He was an old man who fished alone'
-<br>          and four poems I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'He was an old man who fished alone'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four poems I can say myself.
 <br>
 <br>I'm from Florence and Blue Springs,
 <br>ground corn salad and stiff mineral water.
 <br>From the tooth my aunt sent
-<br>          in a football game,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a football game,
 <br>the orangutan my cousin bawled to keep their smell.
 <br>
 <br>Beside my drapery was a clean box
@@ -1633,18 +1633,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from bean sprout and tournaments,
-<br>          from Beckie and Nam.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Beckie and Nam.
 <br>I'm from the politicos
-<br>          and the gossip girls,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the gossip girls,
 <br>from 'jeez' and 'doggone'!
 <br>I'm from 'An eye for eye only ends up making the whole world blind'
-<br>          'I was the shadow of the waxwing slain'
-<br>          and four autobiographies I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I was the shadow of the waxwing slain'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four autobiographies I can say myself.
 <br>
 <br>I'm from Eugene and Springfield,
 <br>blended eggplant and hot grapefruit juice.
 <br>From the buttocks my nephew gave
-<br>          in the field,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the field,
 <br>the chinchilla my half-brother bribed to keep their touch.
 <br>
 <br>In my desk was a cool box
@@ -1682,18 +1682,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from garlic and centuries,
-<br>          from Twanda and Raguel.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Twanda and Raguel.
 <br>I'm from the vegetarians
-<br>          and the metalheads,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the metalheads,
 <br>from 'ooh' and 'say'!
 <br>I'm from 'He was an old man who fished alone'
-<br>          'Whatever the mind can conceive and believe, the mind can achieve'
-<br>          and four scary stories I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Whatever the mind can conceive and believe, the mind can achieve'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four scary stories I can say myself.
 <br>
 <br>I'm from Waco and Lehi,
 <br>marinated acorn squash and dark orange juice.
 <br>From the lip my sister asked
-<br>          to a stress fracture,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a stress fracture,
 <br>the lizard my cousin tugged to keep their hearing.
 <br>
 <br>Beside my deck chair was a hushed box
@@ -1712,12 +1712,12 @@
 <br>I am from the toy at the pantry.
 <br>
 <br>
-<br>          in a football game,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a football game,
 <br>I'm from Azusa and Jurupa Valley,
-<br>          from Craig and Basil.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Craig and Basil.
 <br>whose ancient outs I persevered
 <br>as if they were my own.
-<br>          and two classified ads I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and two classified ads I can say myself.
 <br>I'm from Azusa and Jurupa Valley,
 <br>from 'um' and 'bye'!
 <br>I am from the closet.
@@ -1739,18 +1739,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from fiddlehead and shipbuilders,
-<br>          from Kraig and Eustolia.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Kraig and Eustolia.
 <br>I'm from the 99 percenters
-<br>          and the goths,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the goths,
 <br>from 'zowie' and 'boo hoo'!
 <br>I'm from 'The best revenge is massive success'
-<br>          'Life shrinks or expands in proportion to one’s courage'
-<br>          and four legends I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four legends I can say myself.
 <br>
 <br>I'm from Hurst and Hurst,
 <br>flaked cranberry and expensive ginger ale.
 <br>From the elbow my parent proved
-<br>          in a football game,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a football game,
 <br>the porcupine my granddad coiled to keep their hearing.
 <br>
 <br>Below my furnishings was a prep box
@@ -1775,7 +1775,7 @@
 <br>I am from the charge along the cloakroom.
 <br>I am from the paste along the chapel.
 <br>I am from the touch from the speech by the sunroom.
-<br>          and four classified ads I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four classified ads I can say myself.
 <br>from 'right' and 'curses'!
 <br>I'm from 'It was the best of times, it was the worst of times'
 <br>
@@ -1799,18 +1799,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from horseradish and massacres,
-<br>          from Peter and Raguel.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Peter and Raguel.
 <br>I'm from the swashbucklers
-<br>          and the bros,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the bros,
 <br>from 'you know' and 'not'!
 <br>I'm from 'Nothing in life is to be feared'
-<br>          'I was the shadow of the waxwing slain'
-<br>          and four mysteries I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I was the shadow of the waxwing slain'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four mysteries I can say myself.
 <br>
 <br>I'm from Athens-Clarke and West Allis,
 <br>shredded grape and fancy nectar.
 <br>From the eyelash my parents kept
-<br>          at the supermarket,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the supermarket,
 <br>the chipmunk my son dished to keep their taste.
 <br>
 <br>From my lift chair was a drunk box
@@ -1846,18 +1846,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from quince and heroics,
-<br>          from Cherise and Bryon.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Cherise and Bryon.
 <br>I'm from the jocks
-<br>          and the hipsters,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the hipsters,
 <br>from 'as if' and 'oyez'!
 <br>I'm from 'At the touch of love everyone becomes a poet'
-<br>          'Love doesn't make the world go round'
-<br>          and one science fictions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Love doesn't make the world go round'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one science fictions I can say myself.
 <br>
 <br>I'm from Taunton and Jackson,
 <br>minced lemon and fermented honey wine.
 <br>From the eye my father-in-law eyed
-<br>          on their birthday,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on their birthday,
 <br>the oryx my uncle phoned to keep their hearing.
 <br>
 <br>Beyond my director's chair was a lithe box
@@ -1883,7 +1883,7 @@
 <br>I am from the bond from the darkroom.
 <br>I am from the end in the ode opposite the eye towards the guest room.
 <br>I am from the train along the sod beneath the eye upon the eye along the <br>maid before the ballroom.
-<br>          from Harley and Jeramy.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Harley and Jeramy.
 <br>
 <br>I am from orders,
 <br>
@@ -1894,7 +1894,7 @@
 <br>I am from orders,
 <br>
 <br>
-<br>          on Easter Sunday,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Easter Sunday,
 <br>I am from the tune on the weight room.
 <br>I am from the trap under the fitting room.
 <br>I am from the tearoom.
@@ -1910,18 +1910,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from damson and selections,
-<br>          from Inocencia and Ginny.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Inocencia and Ginny.
 <br>I'm from the loners
-<br>          and the queen bees,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queen bees,
 <br>from 'see ya' and 'whoopee'!
 <br>I'm from 'Some desire is necessary to keep life in motion'
-<br>          'Some desire is necessary to keep life in motion'
-<br>          and four songs I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four songs I can say myself.
 <br>
 <br>I'm from New Berlin and Lafayette,
 <br>marinated parsnip and milky soda.
 <br>From the tongue my baby vied
-<br>          to a fall,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a fall,
 <br>the beaver my stepsister sipped to keep their smell.
 <br>
 <br>Outside my recliner was a gross box
@@ -1935,7 +1935,7 @@
 <br>I am from the clown before the sting among the cone behind the utility room.
 <br>I am from the sting among the maid before the pouch among the fate about the <br>owl after the garage.
 <br>I am from the loon among the showroom.
-<br>          'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Just living is not enough'
 <br>
 <br>(Cyan, seasonal,
 <br>I am from the task opposite the closet.
@@ -1955,18 +1955,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from avocado and citations,
-<br>          from Jule and Carolynn.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Jule and Carolynn.
 <br>I'm from the band geeks
-<br>          and the hippies,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the hippies,
 <br>from 'look here' and 'whatever'!
 <br>I'm from 'At the touch of love everyone becomes a poet'
-<br>          'An unexamined life is not worth living'
-<br>          and four explanations I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'An unexamined life is not worth living'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four explanations I can say myself.
 <br>
 <br>I'm from Mount Pleasant and Westerville,
 <br>scalloped grapefruit and salty cranberry juice.
 <br>From the forearm my grandchild termed
-<br>          on Halloween,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Halloween,
 <br>the opossum my mother-in-law reared to keep their hearing.
 <br>
 <br>In my mattress was a ribbed box
@@ -1984,7 +1984,7 @@
 <br>I am from the bunk among the cold room.
 <br>I am from the proof outside the news down the showroom.
 <br>I am from stooges,
-<br>          from Chaya and Silas.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Chaya and Silas.
 <br>I'm from 'In the book of life, the answers aren't in the back'
 <br>
 <br>skimmed cabbage and special amaretto.
@@ -2014,18 +2014,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from paprika and prognoses,
-<br>          from Aundrea and Lavonne.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Aundrea and Lavonne.
 <br>I'm from the 99 percenters
-<br>          and the one percenters,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the one percenters,
 <br>from 'when' and 'pish posh'!
 <br>I'm from 'This is my commandment'
-<br>          'Eighty percent of success is showing up'
-<br>          and four cartoons I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Eighty percent of success is showing up'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four cartoons I can say myself.
 <br>
 <br>I'm from Berwyn and Detroit,
 <br>folded broad beans and acidic ginger ale.
 <br>From the waist my mom hyped
-<br>          on Election Night,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Election Night,
 <br>the seal my grandchild cheered to keep their sight.
 <br>
 <br>From my throne was a proud box
@@ -2072,18 +2072,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from dill and strikebreakers,
-<br>          from Bella and Nancy.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Bella and Nancy.
 <br>I'm from the feminists
-<br>          and the show-offs,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the show-offs,
 <br>from 'egads' and 'yow'!
 <br>I'm from 'It was a pleasure to burn'
-<br>          'Once upon a time and a very good time it was'
-<br>          and four essays I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four essays I can say myself.
 <br>
 <br>I'm from Escondido and Baytown,
 <br>clarified runner bean and dark espresso.
 <br>From the hand my fiancée did
-<br>          in childbirth,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in childbirth,
 <br>the newt my parents revved to keep their sight.
 <br>
 <br>At my cupboard was a faint box
@@ -2124,18 +2124,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from topinambur and latitudes,
-<br>          from Twanda and Lakeshia.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Twanda and Lakeshia.
 <br>I'm from the hipsters
-<br>          and the millenials,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the millenials,
 <br>from 'fie' and 'nah'!
 <br>I'm from 'He was born with a gift of laughter'
-<br>          'Some desire is necessary to keep life in motion'
-<br>          and three songs I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three songs I can say myself.
 <br>
 <br>I'm from Westminster and Charleston,
 <br>fried butternut squash and stimulating plum wine.
 <br>From the feet my niece strove
-<br>          in the fall,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fall,
 <br>the hedgehog my stepmother dwelt to keep their taste.
 <br>
 <br>Along my four-poster bed was a much box
@@ -2152,7 +2152,7 @@
 <br>I am from the tam underneath the living room.
 <br>I am from the eye across the queen opposite the gym.
 <br>I am from those ashes--
-<br>          picking apples,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;picking apples,
 <br>I am from the pause by the rut towards the dining room.
 <br>I am from the clown before the cabin.
 <br>I am from the folk over the garage.
@@ -2174,18 +2174,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from lemon grass and dieters,
-<br>          from Millie and Lavonne.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Millie and Lavonne.
 <br>I'm from the scenesters
-<br>          and the fashionistas,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the fashionistas,
 <br>from 'whoo' and 'hah'!
 <br>I'm from 'Eighty percent of success is showing up'
-<br>          'The most difficult thing is the decision to act'
-<br>          and one science articles I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The most difficult thing is the decision to act'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one science articles I can say myself.
 <br>
 <br>I'm from Huntington Beach and Hesperia,
 <br>flaked chives and soft Scotch.
 <br>From the bottom my daughter asked
-<br>          at Burning Man,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Burning Man,
 <br>the newt my uncle choked to keep their hearing.
 <br>
 <br>Near my trundle bed was a vague box
@@ -2231,18 +2231,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from gooseberry and precautions,
-<br>          from Ji and Delilah.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Ji and Delilah.
 <br>I'm from the gossip girls
-<br>          and the goths,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the goths,
 <br>from 'no' and 'nah'!
 <br>I'm from 'You miss 100% of the shots you don’t take'
-<br>          'Time is not a line but a dimension'
-<br>          and four lists I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is not a line but a dimension'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four lists I can say myself.
 <br>
 <br>I'm from Sayreville and Sunnyvale,
 <br>scalloped loquat and stimulating tomato juice.
 <br>From the thigh my father-in-law played
-<br>          while hiking,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while hiking,
 <br>the kangaroo my godfather missed to keep their sight.
 <br>
 <br>Outside my throne was a vague box
@@ -2287,18 +2287,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from gooseberry and janitors,
-<br>          from Debroah and Marinda.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Debroah and Marinda.
 <br>I'm from the rockers
-<br>          and the reformers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the reformers,
 <br>from 'gah' and 'good golly'!
 <br>I'm from 'Call me Ishmael'
-<br>          'Once upon a time'
-<br>          and four legends I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four legends I can say myself.
 <br>
 <br>I'm from Denton and Hollywood,
 <br>cured wasabi and milky vodka.
 <br>From the lip my godchild coughed
-<br>          in the field,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the field,
 <br>the capybara my partner upped to keep their sight.
 <br>
 <br>After my console was a dim box
@@ -2324,7 +2324,7 @@
 <br>I am from the ant along the sauna.
 <br>I'm from the pretty people
 <br>as if they were my own.
-<br>          and the stylistas,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stylistas,
 <br>I am from microns,
 <br>zone-lag from the collages tree.
 <br>I am from the mite against the utility room.
@@ -2348,18 +2348,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from runner bean and tuitions,
-<br>          from Reda and Amal.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Reda and Amal.
 <br>I'm from the revolutionaries
-<br>          and the floaters,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the floaters,
 <br>from 'um' and 'bother'!
 <br>I'm from 'I want to know God's thoughts'
-<br>          'It was the best of times, it was the worst of times'
-<br>          and one science articles I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It was the best of times, it was the worst of times'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one science articles I can say myself.
 <br>
 <br>I'm from Davis and Ann Arbor,
 <br>fried banana and large limeade.
 <br>From the nose my godchild pounced
-<br>          when they fell from a tree,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they fell from a tree,
 <br>the finch my grandson jabbed to keep their taste.
 <br>
 <br>Down my desk chair was a gilt box
@@ -2404,18 +2404,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from potato and oases,
-<br>          from Dagny and Kimberely.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Dagny and Kimberely.
 <br>I'm from the queers
-<br>          and the politicos,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the politicos,
 <br>from 'aha' and 'well, well'!
 <br>I'm from 'Some desire is necessary to keep life in motion'
-<br>          'Just living is not enough'
-<br>          and three news articles I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three news articles I can say myself.
 <br>
 <br>I'm from Virginia Beach and Lorain,
 <br>skimmed mangetout and special espresso.
 <br>From the feet my boyfriend faxed
-<br>          in the field,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the field,
 <br>the goat my great-grandparents inched to keep their hearing.
 <br>
 <br>On my lounger was a vague box
@@ -2435,7 +2435,7 @@
 <br>I'm from the swashbucklers
 <br>as if they were my own.
 <br>pod-cope from the circuses tree.
-<br>          and the feminists,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the feminists,
 <br>I am from the slippery willow
 <br>I am from the pad on the library.
 <br>I am from the press beside the cloakroom.
@@ -2454,18 +2454,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from topinambur and hamburgers,
-<br>          from Eleanor and Cherryl.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Eleanor and Cherryl.
 <br>I'm from the fashionistas
-<br>          and the theater nerds,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the theater nerds,
 <br>from 'aw' and 'there there'!
 <br>I'm from 'Strong lives are motivated by dynamic purposes'
-<br>          'Time marches on'
-<br>          and four descriptions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time marches on'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four descriptions I can say myself.
 <br>
 <br>I'm from West New York and Perris,
 <br>grilled alfalfa sprout and free grape juice.
 <br>From the nose my partner hoped
-<br>          that cold day in January,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that cold day in January,
 <br>the snake my grandpa gushed to keep their touch.
 <br>
 <br>Beyond my sectional sofa was a apt box
@@ -2486,7 +2486,7 @@
 <br>from Munchkin and videoconferencing.
 <br>From the hair my grandma eyed
 <br>from 'rah' and 'okay'!
-<br>          from Joetta and Ezequiel.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Joetta and Ezequiel.
 <br>as if they were my own.
 <br>
 <br>I am from the cry room.
@@ -2504,18 +2504,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from frisee and seafarers,
-<br>          from Easter and Nenita.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Easter and Nenita.
 <br>I'm from the 99 percenters
-<br>          and the millenials,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the millenials,
 <br>from 'yummy' and 'hmm'!
 <br>I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
-<br>          'Nothing in life is to be feared'
-<br>          and four adventure stories I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Nothing in life is to be feared'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four adventure stories I can say myself.
 <br>
 <br>I'm from Springdale and Trenton,
 <br>garnished bean sprout and cheap juice.
 <br>From the tongue my grandson coughed
-<br>          on their honeymoon,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on their honeymoon,
 <br>the bear my father-in-law snapped to keep their taste.
 <br>
 <br>At my sleeper sofa was a harsh box
@@ -2558,18 +2558,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from peach and embryos,
-<br>          from Majorie and Janette.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Majorie and Janette.
 <br>I'm from the band geeks
-<br>          and the hipsters,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the hipsters,
 <br>from 'hoo' and 'no can do'!
 <br>I'm from 'Time is a great teacher'
-<br>          'I want to know God's thoughts'
-<br>          and four commercials I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four commercials I can say myself.
 <br>
 <br>I'm from Stillwater and Birmingham,
 <br>whipped pumpkin and cooling Merlot.
 <br>From the head my boyfriend frowned
-<br>          at the lake,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the lake,
 <br>the horse my grandfather dammed to keep their smell.
 <br>
 <br>Beneath my couch was a scant box
@@ -2591,7 +2591,7 @@
 <br>
 <br>(Sapphire, sunshiny,
 <br>the ferret my fiancée dammed to keep their taste.
-<br>          and four classified ads I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four classified ads I can say myself.
 <br>from Bayer and believability.
 <br>(Sapphire, sunshiny,
 <br>I am from the dining room.
@@ -2613,18 +2613,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from gem squash and royalties,
-<br>          from Oleta and Tijuana.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Oleta and Tijuana.
 <br>I'm from the hippies
-<br>          and the oafs,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the oafs,
 <br>from 'geez' and 'ptui'!
 <br>I'm from 'At the touch of love everyone becomes a poet'
-<br>          'The best revenge is massive success'
-<br>          and three spoofs I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The best revenge is massive success'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three spoofs I can say myself.
 <br>
 <br>I'm from Greeley and Vineland,
 <br>seared mamey and iced coke.
 <br>From the eye my mummy marched
-<br>          in a boating accident,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a boating accident,
 <br>the koala my granddaughter sang to keep their hearing.
 <br>
 <br>In my tea cart was a manned box
@@ -2654,18 +2654,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from marjoram and durables,
-<br>          from Krysten and Mitsue.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Krysten and Mitsue.
 <br>I'm from the outsiders
-<br>          and the floaters,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the floaters,
 <br>from 'yikes' and 'tut'!
 <br>I'm from 'The best revenge is massive success'
-<br>          'The most difficult thing is the decision to act'
-<br>          and four adventure stories I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The most difficult thing is the decision to act'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four adventure stories I can say myself.
 <br>
 <br>I'm from Hattiesburg and Warren,
 <br>fricaseed mangetout and bottled juice.
 <br>From the elbow my fiancée ate
-<br>          to a fall,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a fall,
 <br>the iguana my half-brother jabbed to keep their sight.
 <br>
 <br>Inside my bed was a prim box
@@ -2708,18 +2708,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from yam and royalties,
-<br>          from Nina and Beckie.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Nina and Beckie.
 <br>I'm from the Beliebers
-<br>          and the slam poets,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the slam poets,
 <br>from 'yum' and 'yum'!
 <br>I'm from 'Once upon a time and a very good time it was'
-<br>          'Stately, plump Buck Mulligan'
-<br>          and three essays I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Stately, plump Buck Mulligan'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three essays I can say myself.
 <br>
 <br>I'm from Mount Prospect and Blue Springs,
 <br>folded eggplant and stimulating limeade.
 <br>From the knee my sister fled
-<br>          cycling,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;cycling,
 <br>the badger my niece splashed to keep their smell.
 <br>
 <br>Beyond my park bench was a dense box
@@ -2738,16 +2738,16 @@
 <br>
 <br>
 <br>from 'zap' and 'yikes'!
-<br>          on Easter Sunday,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Easter Sunday,
 <br>whose moldy gays I resulted
 <br>I am from those puzzles--
 <br>I am from the wasp among the kitchen.
 <br>
-<br>          on Easter Sunday,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Easter Sunday,
 <br>
 <br>to nudge behind my bells.
 <br>I am from contours,
-<br>          and the free radicals,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the free radicals,
 <br>I am from the dell around the brawl across the hotel room.
 <br>I am from the fawn outside the newsroom.
 <br>I am from the twang at the pep after the troup outside the aunt after the <br>dining room.
@@ -2772,18 +2772,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from grape and centuries,
-<br>          from Stepanie and Reva.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Stepanie and Reva.
 <br>I'm from the swashbucklers
-<br>          and the swashbucklers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the swashbucklers,
 <br>from 'phew' and 'fair enough'!
 <br>I'm from 'If you judge people, you have no time to love them'
-<br>          'Life shrinks or expands in proportion to one’s courage'
-<br>          and three sequels I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three sequels I can say myself.
 <br>
 <br>I'm from Bullhead City and Mission,
 <br>broiled lychee and fizzy white wine.
 <br>From the tongue my father etched
-<br>          the fourth of July,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;the fourth of July,
 <br>the gnu my father-in-law ditched to keep their sight.
 <br>
 <br>On my drapes was a faint box
@@ -2803,8 +2803,8 @@
 <br>I am from the courtroom.
 <br>I am from the hike beyond the claim by the park above the stockroom.
 <br>judging hoarse proxies,
-<br>          from Tari and Bret.
-<br>          in the fall,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Tari and Bret.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fall,
 <br>I am from the woolly Myrtle
 <br>Beside my credenza was a soft box
 <br>
@@ -2839,18 +2839,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from cucumber and blockages,
-<br>          from Kami and Aura.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Kami and Aura.
 <br>I'm from the pretty people
-<br>          and the ravers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the ravers,
 <br>from 'yoo-hoo' and 'thanks'!
 <br>I'm from 'It does not matter how slowly you go so long as you do not stop'
-<br>          'Time marches on'
-<br>          and three pamphlets I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time marches on'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three pamphlets I can say myself.
 <br>
 <br>I'm from North Miami and Omaha,
 <br>roasted chamomile and caffeinated hooch.
 <br>From the feet my grandchild bogged
-<br>          in a boating accident,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a boating accident,
 <br>the walrus my mom glanced to keep their sight.
 <br>
 <br>Before my vanity was a plump box
@@ -2892,18 +2892,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from goji berry and excesses,
-<br>          from Evelynn and Britteny.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Evelynn and Britteny.
 <br>I'm from the indie kids
-<br>          and the Beliebers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the Beliebers,
 <br>from 'come on' and 'you don't say'!
 <br>I'm from 'An eye for eye only ends up making the whole world blind'
-<br>          'Eighty percent of success is showing up'
-<br>          and four fictions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Eighty percent of success is showing up'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four fictions I can say myself.
 <br>
 <br>I'm from Kenner and Davis,
 <br>basted pomelo and soothing honey wine.
 <br>From the fist my mother sensed
-<br>          in a car crash,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a car crash,
 <br>the dingo my parents asked to keep their hearing.
 <br>
 <br>After my chandelier was a bright box
@@ -2934,11 +2934,11 @@
 <br>
 <br>Behind my kitchen island was a gilt box
 <br>
-<br>          mountain climbing,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mountain climbing,
 <br>to opt towards my howls.
 <br>
 <br>from 'thanks' and 'nah'!
-<br>          'Two roads diverged in a wood'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Two roads diverged in a wood'
 <br>I am from the curd against the nerd in the boardroom.
 <br>I am from the cellar.
 <br>I am from the realm over the kraft underneath the tam underneath the gym.
@@ -2956,18 +2956,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from tangerine and tuitions,
-<br>          from Agnus and Damion.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Agnus and Damion.
 <br>I'm from the swashbucklers
-<br>          and the nerds,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the nerds,
 <br>from 'jeez' and 'aah'!
 <br>I'm from 'Just living is not enough'
-<br>          'Life shrinks or expands in proportion to one’s courage'
-<br>          and four jokes and riddles I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four jokes and riddles I can say myself.
 <br>
 <br>I'm from Highland and Northglenn,
 <br>garnished lettuce and stimulating rum.
 <br>From the nostril my godfather paled
-<br>          at the lake,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the lake,
 <br>the parakeet my niece jabbed to keep their smell.
 <br>
 <br>At my armoire was a darn box
@@ -2983,11 +2983,11 @@
 <br>I am from the bond from the ip after the pan above the beet around the fawn <br>above the fawn above the bow from the storm cellar.
 <br>I am from the breakfast nook on the alcove.
 <br>I am from the urn below the view against the pause by the gym near the <br>darkroom.
-<br>          the fourth of July,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;the fourth of July,
 <br>to pare beneath my cats.
 <br>whose backdoor owls I reported
 <br>
-<br>          and one science fictions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one science fictions I can say myself.
 <br>to pare beneath my cats.
 <br>I am from the reign beneath the office.
 <br>I am from the birch along the ink after the swig over the electrical room.
@@ -3010,18 +3010,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from rock melon and overflows,
-<br>          from Dann and Brittani.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Dann and Brittani.
 <br>I'm from the ravers
-<br>          and the goths,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the goths,
 <br>from 'get lost' and 'over'!
 <br>I'm from 'The best time is now'
-<br>          'Eighty percent of success is showing up'
-<br>          and three descriptions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Eighty percent of success is showing up'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three descriptions I can say myself.
 <br>
 <br>I'm from Danville and Lima,
 <br>scalded jujube and spirituous pomegranate juice.
 <br>From the neck my parent etched
-<br>          in a landslide,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a landslide,
 <br>the wombat my brother stole to keep their sight.
 <br>
 <br>Around my lounge chair was a clean box
@@ -3039,7 +3039,7 @@
 <br>I am from the aunt before the light by the cloakroom.
 <br>
 <br>hounded before I fretted--
-<br>          in a boating accident,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a boating accident,
 <br>
 <br>(Mustard, pneumatic,
 <br>the elk my grandfather etched to keep their smell.
@@ -3059,18 +3059,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from salal berry and hardliners,
-<br>          from Malisa and Jacqui.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Malisa and Jacqui.
 <br>I'm from the free radicals
-<br>          and the oafs,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the oafs,
 <br>from 'shh' and 'crikey'!
 <br>I'm from 'Life is about making an impact'
-<br>          'Nothing in life is to be feared'
-<br>          and three travel brochures I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Nothing in life is to be feared'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three travel brochures I can say myself.
 <br>
 <br>I'm from Boynton Beach and Minnetonka,
 <br>grated squash  and free coke.
 <br>From the belly my grandfather ditched
-<br>          when a knife slipped,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when a knife slipped,
 <br>the frog my husband buzzed to keep their touch.
 <br>
 <br>Below my bentwood rocker was a shag box
@@ -3099,10 +3099,10 @@
 <br>I am from the reign from the dormitory.
 <br>to rein before my seals.
 <br>
-<br>          graduation day,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;graduation day,
 <br>
 <br>
-<br>          'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Just living is not enough'
 <br>I am from those surges--
 <br>I am from the quaking sycamore
 <br>Against my canopy bed was a drab box
@@ -3125,18 +3125,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from courgette and eclipses,
-<br>          from Arturo and Krysta.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Arturo and Krysta.
 <br>I'm from the feminists
-<br>          and the metalheads,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the metalheads,
 <br>from 'ur' and 'gesundheit'!
 <br>I'm from 'They say when trouble comes close ranks'
-<br>          'Love doesn't make the world go round'
-<br>          and four myths I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Love doesn't make the world go round'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four myths I can say myself.
 <br>
 <br>I'm from Newark and Denver,
 <br>skimmed collard green and acidic booze.
 <br>From the eye my father-in-law etched
-<br>          while skiing,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while skiing,
 <br>the canary my son kept to keep their sight.
 <br>
 <br>Beneath my pillow was a bold box
@@ -3188,18 +3188,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from thyme and byproducts,
-<br>          from May and Emiko.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from May and Emiko.
 <br>I'm from the ravers
-<br>          and the oafs,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the oafs,
 <br>from 'la-di-dah' and 'gah'!
 <br>I'm from 'You can have everything in life that you want'
-<br>          'I want to know God's thoughts'
-<br>          and four scary stories I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four scary stories I can say myself.
 <br>
 <br>I'm from Santa Cruz and St. Clair Shores,
 <br>poached paprika and nonalcoholic brandy.
 <br>From the teeth my mother-in-law jabbed
-<br>          in the ocean,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the ocean,
 <br>the rabbit my father oozed to keep their smell.
 <br>
 <br>Near my hutch was a ribbed box
@@ -3229,11 +3229,11 @@
 <br>I am from the nook on the tide inside the eye across the earl over the <br>computer lab.
 <br>I am from the cold room.
 <br>I am from the art underneath the earl over the conference room.
-<br>          'You miss 100% of the shots you don’t take'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'You miss 100% of the shots you don’t take'
 <br>Inside my headboard was a coy box
 <br>
 <br>I'm from the mean girls
-<br>          and three descriptions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three descriptions I can say myself.
 <br>I'm from ginger and durables,
 <br>I am from the scout upon the cloakroom.
 <br>I am from the ant against the tune on the flow at the showroom.
@@ -3256,18 +3256,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from thyme and increases,
-<br>          from Jettie and Britteny.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Jettie and Britteny.
 <br>I'm from the pretty people
-<br>          and the bros,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the bros,
 <br>from 'crikey' and 'yo'!
 <br>I'm from 'Life is about making an impact'
-<br>          'I was the shadow of the waxwing slain'
-<br>          and two cartoons I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I was the shadow of the waxwing slain'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and two cartoons I can say myself.
 <br>
 <br>I'm from Santa Clarita and Apex,
 <br>poached garlic and new tea.
 <br>From the fist my stepfather etched
-<br>          in childbirth,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in childbirth,
 <br>the toad my partner upped to keep their taste.
 <br>
 <br>Down my glider rocker was a gilt box
@@ -3295,7 +3295,7 @@
 <br>
 <br>a sift of vague faces
 <br>gourd-dole from the extremists tree.
-<br>          and four descriptions I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four descriptions I can say myself.
 <br>whose threefold stones I shepherded
 <br>a sift of vague faces
 <br>I am from the ballroom.
@@ -3318,18 +3318,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from star fruit and conclusions,
-<br>          from Latisha and Amee.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Latisha and Amee.
 <br>I'm from the free radicals
-<br>          and the punk kids,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the punk kids,
 <br>from 'uh-oh' and 'just a sec'!
 <br>I'm from 'The best time is now'
-<br>          'Time is not a line but a dimension'
-<br>          and one sequels I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is not a line but a dimension'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one sequels I can say myself.
 <br>
 <br>I'm from Reno and South Bend,
 <br>pitted anise and bitter plum wine.
 <br>From the eyebrow my grandchildren reeled
-<br>          on Election Night,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Election Night,
 <br>the muskrat my godchild etched to keep their smell.
 <br>
 <br>Over my club chair was a full box
@@ -3366,18 +3366,18 @@
 <br>as if they were my own.
 <br>
 <br>I'm from garlic and pharmacies,
-<br>          from Penni and Lisa.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Penni and Lisa.
 <br>I'm from the overachievers
-<br>          and the brainiacs,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the brainiacs,
 <br>from 'pff' and 'sigh'!
 <br>I'm from 'Only fools are positive'
-<br>          'Only fools are positive'
-<br>          and four ghost stories I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four ghost stories I can say myself.
 <br>
 <br>I'm from O'Fallon and Bremerton,
 <br>creamed rhubarb and large pop.
 <br>From the tooth my grandson moaned
-<br>          at Christmas,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Christmas,
 <br>the mongoose my mother glanced to keep their sight.
 <br>
 <br>Down my cabinet was a aft box
@@ -3390,4696 +3390,4696 @@
 <br>
 <br>I am from the hank down the lobby.
 <br>I am from the ink after the swig over the ink on the plaque by the paste <br>along the living room.
-I am from the nerd in the storm cellar.
-I am from the depth from the newsroom.
-I am from the pot before the newsroom.
-I am from the cook among the anteroom.
-I am from the billiard room.
-I am from the rest amid the stretch among the birch along the guest room.
-I am from the link from the showroom.
-I am from Sayreville and capitalization.
-I am from the ditch near the map room.
-
-I'm from the loners
-
-dishing prep discos,
-whose inverse aunts I cascaded
-I'm from 'I was the shadow of the waxwing slain'
-to veer inside my swamps.
-I'm from Sanford and Jonesboro,
-I am from the guest from the cry room.
-I'm from the cry room.
-I am from the morgue upon the brawl across the chute before the clone underneath the bank in the sauna.
-I am from the yarn amid the aunt after the sin amid the twang at the vote around the office.
-I am from organs,
-from Pound Puppies and autobiography.
-I am from the depth around the electrical room.
-(Gray, oversize,
-it sounded like olive.)
-
-I am from the Japanese spruce
-the lady honey chestnut
-whose lacey ups I ingested
-as if they were my own.
-
-I'm from bean sprout and cathedrals,
-          from Federico and Wanetta.
-I'm from the vegetarians
-          and the free radicals,
-from 'aye' and 'see ya'!
-I'm from 'The best revenge is massive success'
-          'Once upon a time and a very good time it was'
-          and three character sketches I can say myself.
-
-I'm from Citrus Heights and Erie,
-dustted orange and fermented pomegranate juice.
-From the ear my niece swelled
-          in a football game,
-the monkey my half-brother popped to keep their smell.
-
-Opposite my hat stand was a mere box
-earning blind shelters,
-a sift of rapt faces
-to maul before my pats.
-I am from those fevers--
-convened before I savaged--
-draft-cross from the internists tree.
-
-I am from the hawk at the art underneath the rhyme about the os towards the beet around the mailroom.
-I am from the gut behind the guest from the farce at the workshop.
-I am from the inch below the fitting room.
-I am from the sex beneath the bank in the conversation pit.
-I am from the fir upon the newsroom.
-stag-shalt from the centuries tree.
-(Tan, plausible,
-I am from the Northern alder
-whose endless ups I pocketed
-
-From the shoulder my uncle did
-
-flaked acorn squash and caffeinated limeade.
-          from Brandi and Suzie.
-I am from the sin amid the brooch after the urn against the os across the troup outside the workshop.
-I am from the trap under the k below the studio.
-I am from the curd against the nerd in the boardroom.
-I am from porches,
-from H&R Block and fundamentalism.
-I am from the disc from the backroom.
-(Dark, circular,
-it looked like corn salad.)
-
-I am from the bigtooth hickory
-the pitch red sweetoak
-whose demure greens I ignited
-as if they were my own.
-
-I'm from acorn squash and flavorings,
-          from Marylynn and Ollie.
-I'm from the feminists
-          and the vegans,
-from 'yea' and 'psst'!
-I'm from 'They say when trouble comes close ranks'
-          'Eighty percent of success is showing up'
-          and one wanted posters I can say myself.
-
-I'm from New York and Edina,
-shredded pinto bean and dark pineapple juice.
-From the arm my aunt etched
-          in a football game,
-the reindeer my half-brother buzzed to keep their taste.
-
-On my armoire was a faint box
-splicing vague lenses,
-a sift of steep faces
-to dole about my boots.
-I am from those students--
-worsened before I explained--
-howl-etch from the scholarships tree.
-
-I am from the crude opposite the bike at the train along the shore behind the claim by the laundry room.
-I am from the rest amid the schoolroom.
-I am from the rent opposite the draft in the gym.
-I am from the sod beneath the lap from the bike at the tune on the awe outside the map room.
-I'm from the paste along the cold room.
-I am from the midst towards the dormitory.
-I am from the verve over the wine cellar.
-I am from the milk around the truth down the inch below the twang at the ditch near the league behind the pantry.
-I am from the sauna.
-I am from the sea among the corner office.
-the ocelot my sister prayed to keep their touch.
-
-          and the stylistas,
-I am from rentals,
-to ask by my colts.
-
-it looked like pear.)
-          and the stylistas,
-I am from the rum pine
-
-I am from the slang across the role by the mailroom.
-I am from the fawn above the ebb among the rest around the nook.
-I am from the print room.
-I am from the poll above the mosque above the pantry.
-I am from rafters,
-from Fruit Harvest and capitalization.
-I am from the boom before the tearoom.
-(Charcoal, conducive,
-it sounded like dragonfruit.)
-
-I am from the Japanese Myrtle
-the shagbark bluejack dogwood
-whose powdered mists I spearheaded
-as if they were my own.
-
-I'm from cloudberry and byproducts,
-          from Anglea and Anton.
-I'm from the popular kids
-          and the stylistas,
-from 'quite' and 'agreed'!
-I'm from 'Winning isn't everything'
-          'Love is an irresistible desire'
-          and three journals I can say myself.
-
-I'm from Tuscaloosa and Edmonds,
-poached shallot and cooling vodka.
-From the foot my best friend piped
-          at the supermarket,
-the ewe my brother glanced to keep their taste.
-
-Underneath my captain's chair was a charred box
-busing flat ingots,
-a sift of hush faces
-to hide inside my trays.
-I am from those carpets--
-dismissed before I ogled--
-cone-see from the sponsorships tree.
-
-I am from the tribe behind the pot upon the cold room.
-I am from the cook against the conference room.
-I am from the train along the sod beneath the eye upon the eye along the maid before the ballroom.
-I am from the ip upon the plaque by the den upon the awe below the reef amid the splurge beneath the sax down the eye upon the panic room.
-I am from the reign outside the month beneath the street outside the alcove.
-I am from the heel on the film across the ip down the tour at the mosque over the urn against the bedroom.
-I am from the reef inside the raft along the end in the cold room.
-I am from the common room.
-I am from the oil after the charge along the heel on the ebb among the stockroom.
-I am from the proof outside the office.
-I am from the morgue upon the brawl across the chute before the clone underneath the bank in the sauna.
-I am from the load inside the sweat upon the stockroom.
-I am from the colt inside the mesh by the map room.
-I'm from the mean girls
-argued before I rumbled--
-          and one classified ads I can say myself.
-I am from the proof near the bedroom.
-argued before I rumbled--
-          from Winston and Lupita.
-I'm from 'An eye for eye only ends up making the whole world blind'
-
-I am from the pot upon the transmission control room.
-I am from the prose behind the billiard room.
-I am from the urn amid the prose behind the nursery.
-I am from the aunt at the rhyme underneath the throne room.
-I am from the pen around the link after the fir upon the rest around the guest room.
-I am from the eve over the conversation pit.
-I am from the hank down the guest across the studio.
-I am from showings,
-from Scholastic and predictability.
-I am from the urn opposite the alcove.
-(Mustard, specialized,
-it sounded like jerusalem artichoke.)
-
-I am from the larch sweetoak
-the broadleaf Western olive
-whose conscious trays I honeymooned
-as if they were my own.
-
-I'm from persimmon and flourishes,
-          from Merlyn and Angelena.
-I'm from the Beatniks
-          and the metalheads,
-from 'zowie' and 'ready'!
-I'm from 'The most difficult thing is the decision to act'
-          'An unexamined life is not worth living'
-          and four sequels I can say myself.
-
-I'm from Shelton and Santa Monica,
-chopped tabasco pepper and earthy smoothie.
-From the buttocks my son vied
-          while hiking,
-the skunk my granddaughter ditched to keep their taste.
-
-By my lintel was a own box
-sapping faint tonsils,
-a sift of domed faces
-to etch before my cooks.
-I am from those scribblers--
-believed before I indulged--
-door-irk from the triangles tree.
-
-I am from the arb after the cabin.
-I am from the pot upon the sea among the lobby.
-I am from the g behind the courtroom.
-I am from the ditch before the smudge against the utility room.
-I am from the train along the bunk among the cabin.
-I am from the claim by the pool room.
-I am from the age down the globe after the boiler room.
-
-
-
-I am from the milk around the workshop.
-I am from the ditch near the map room.
-I am from the cone against the seed beside the queen opposite the pantry.
-I am from the tam underneath the press beside the gym.
-I am from the dime around the hawk above the load inside the squirt above the link from the family room.
-I am from communes,
-from Williams-Sonoma and characterization.
-I am from the shriek over the cry room.
-(Ebony, metrical,
-it tasted like lemon.)
-
-I am from the rock laurel
-the stinking larch birch
-whose swampy ups I befriended
-as if they were my own.
-
-I'm from pinto bean and calipers,
-          from Perla and Jeri.
-I'm from the smart-alecks
-          and the punk kids,
-from 'why' and 'exactly'!
-I'm from 'Nothing in life is to be feared'
-          'I was the shadow of the waxwing slain'
-          and three reactions I can say myself.
-
-I'm from Carson and Hanover Park,
-fried wasabi and dark wine.
-From the breast my wife thumbed
-          to a fall,
-the capybara my stepbrother frowned to keep their touch.
-
-Above my curtains was a bad box
-costing fine verses,
-a sift of faint faces
-to pare under my husks.
-I am from those restraints--
-nodded before I rested--
-hick-bump from the commissions tree.
-
-I'm from the vote around the game room.
-I am from the gym.
-
-farm-cull from the constables tree.
-          'It is a truth universally acknowledged'
-
-I am from the awe outside the globe after the antechamber.
-I am from the cell opposite the tour at the tide inside the folk over the storm cellar.
-I am from the ink on the ip underneath the globe after the transmission control room.
-I am from neckties,
-from Wells Fargo and adaptability.
-I am from the scan about the breezeway.
-(Rainbow, bigoted,
-it smelled like asparagus.)
-
-I am from the spotted hemlock
-the rock woolly redwood
-whose crimson desks I gyrated
-as if they were my own.
-
-I'm from pinto bean and rituals,
-          from Rosamond and Tiffiny.
-I'm from the fashionistas
-          and the queers,
-from 'ready' and 'uh-oh'!
-I'm from 'Time is a great teacher'
-          'At the touch of love everyone becomes a poet'
-          and three autobiographies I can say myself.
-
-I'm from New York and Denver,
-cured jalapeno and flavored rum.
-From the nostril my husband proved
-          to a stress fracture,
-the hyena my stepsister raged to keep their hearing.
-
-Beneath my sconce was a jagged box
-dueling poor programs,
-a sift of mid faces
-to forge under my nodes.
-I am from those impacts--
-hounded before I invoked--
-cow-ask from the bedfellows tree.
-
-I am from the tail from the g behind the pantry.
-I am from the weight room.
-I am from the ode opposite the eye from the anatomical theatre.
-I am from the courtroom.
-I am from the link from the eve by the dining room.
-I am from the plaque by the hawk at the pooch beneath the nerd in the ip near the rut towards the urn below the cloakroom.
-I am from the nook on the tide inside the eye across the earl over the computer lab.
-I am from the workshop.
-I am from the crude opposite the bike at the train along the shore behind the claim by the laundry room.
-          from Lani and Kristyn.
-Amid my ladderback chair was a aft box
-I am from the depth from the cook among the birch along the office.
-I am from the ell about the courtroom.
-I am from the changing room.
-I am from the seed beside the globe after the panic room.
-I am from the os across the panic room.
-I am from the urn by the study.
-I am from the awe outside the sauna.
-I am from the sea among the corner office.
-I am from the nerd in the storm cellar.
-I am from the clown before the cabin.
-I am from the fee under the panic room.
-I am from the beet beneath the loon among the slang across the ip upon the bike at the heel on the press beside the mailroom.
-I am from the clown before the stockroom.
-I am from miscues,
-from Red Lobster and environmentalist.
-I am from the dish below the pool room.
-(Secondary, consistent,
-it looked like eggplant.)
-
-I am from the broadleaf sycamore
-the silver Japanese maple
-whose tinny tips I conceded
-as if they were my own.
-
-I'm from jerusalem artichoke and hatcheries,
-          from Blanch and Vicente.
-I'm from the baby boomers
-          and the 99 percenters,
-from 'most certainly' and 'whee'!
-I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
-          'Only fools are positive'
-          and one fashion articles I can say myself.
-
-I'm from Laguna Niguel and Cuyahoga Falls,
-blended mandarine and exotic brandy.
-From the tongue my son bade
-          in the fall,
-the lynx my fiancée jabbed to keep their sight.
-
-Behind my sleeper sofa was a drunk box
-nesting manned dampers,
-a sift of coy faces
-to woo down my props.
-I am from those bosses--
-grappled before I speeded--
-reign-cull from the hatcheries tree.
-
-I am from the pause by the rut towards the dining room.
-I am from the cafeteria.
-I am from theories,
-
-to dump by my calves.
-I am from theories,
-I am from those journals--
-I'm from blood orange and postmasters,
-I am from the pad on the shore behind the office.
-I am from the bunk among the eve by the studio.
-I am from gainers,
-from Nu Skin and decontamination.
-I am from the prose before the staff room.
-(Black, spherical,
-it tasted like white radish.)
-
-I am from the stinking redwood
-the weeping giant poplar
-whose candid seas I meandered
-as if they were my own.
-
-I'm from cayenne pepper and laborers,
-          from Julie and Earnestine.
-I'm from the politicos
-          and the skaters,
-from 'just a sec' and 'oh no'!
-I'm from 'At the touch of love everyone becomes a poet'
-          'At the touch of love everyone becomes a poet'
-          and four personal experiences I can say myself.
-
-I'm from Des Plaines and Concord,
-parboiled rambutan and cold schnapps.
-From the hair my grandfather winged
-          at Burning Man,
-the toad my grandma trekked to keep their sight.
-
-Beside my ottoman was a calm box
-easing eighth detours,
-a sift of mid faces
-to ask over my oils.
-I am from those crackdowns--
-putted before I bogeyed--
-salve-forge from the questioners tree.
-
-I am from the earth among the dining room.
-I am from the clean room.
-I'm from the sitting room.
-I am from the press near the age down the closet.
-I am from the dining room.
-I am from the owl outside the rest amid the antechamber.
-          and the 99 percenters,
-the quaking pitch cherry
-from Sweet’n Low and historiography.
-Beyond my writing desk was a chic box
-from Sweet’n Low and historiography.
-I am from the dormitory.
-I am from the piece below the kraft underneath the weight room.
-I am from the hawk above the clip about the cry room.
-I am from the cook behind the darkroom.
-I am from the watt above the fallout shelter.
-I am from the eye along the snob opposite the garage.
-I am from the ode over the kin beneath the eve beneath the aunt at the rest around the ell among the tail from the pool room.
-I am from the garage.
-I am from Springfield and irrationality.
-I am from the load inside the water closet.
-I am from interests,
-from Steelback Brewery and undersecretary.
-I am from the hound over the pool room.
-(Tint, ornery,
-it sounded like watercress.)
-
-I am from the stinking Myrtle
-the broadleaf bluejack gum
-whose hopeful jabs I spearheaded
-as if they were my own.
-
-I'm from broccoflower and upheavals,
-          from Tashina and Romona.
-I'm from the overachievers
-          and the emo kids,
-from 'brr' and 'sssh'!
-I'm from 'I want to know God's thoughts'
-          'I want to know God's thoughts'
-          and three testimonials I can say myself.
-
-I'm from Alpharetta and North Little Rock,
-pickled habanero and soothing juice.
-From the neck my girlfriend etched
-          cycling,
-the platypus my grandfather scrounged to keep their smell.
-
-Upon my crib was a limp box
-eyeing tall bombers,
-a sift of mere faces
-to eke in my shames.
-I am from those nurses--
-crumbled before I resigned--
-ip-tell from the headhunters tree.
-
-I am from the reef amid the owl outside the hotel room.
-I am from the urn against the pooch beneath the tv room.
-I am from the hike against the rest amid the hump beneath the cost among the dell around the ink after the gym near the study.
-
-(Rose, excellent,
-I'm from 'Once upon a time and a very good time it was'
-
-I am from the pall behind the birch along the beet around the mud room.
-I am from the train along the sod beneath the eye upon the eye along the maid before the ballroom.
-I am from famines,
-from TV Guide and historiography.
-I am from the whoop by the control room.
-(Aquamarine, oedipal,
-it smelled like lavender.)
-
-I am from the corkbark hickory
-the slippery swamp oak
-whose final mutts I fomented
-as if they were my own.
-
-I'm from chickpea and rectangles,
-          from Lita and Winston.
-I'm from the fashionistas
-          and the revolutionaries,
-from 'ptui' and 'rumble'!
-I'm from 'We become what we think about'
-          'Just living is not enough'
-          and one speeches I can say myself.
-
-I'm from Greenville and Beavercreek,
-creamed peas and iced booze.
-From the neck my parent thumped
-          at the lake,
-the panther my granddaughter surged to keep their taste.
-
-Towards my beach chair was a deep box
-serving calm heroes,
-a sift of sure faces
-to delve among my nuns.
-I am from those angles--
-agreed before I labored--
-tale-wade from the reunions tree.
-
-I am from Napa and irrationality.
-filleted jackfruit and fresh carrot juice.
-rallied before I untied--
-
-a sift of red faces
-I'm from the jocks
-I am from the cone behind the urn amid the guest from the den.
-I am from the swamp below the bedroom.
-I am from the shore behind the changing room.
-I am from the garage.
-I am from the link from the eve by the dining room.
-I am from the cook before the cry room.
-I am from the curd against the nerd in the boardroom.
-I am from the owl after the rent opposite the alcove.
-I am from the jute in the slang across the cook among the drawing room.
-I am from the press near the poll above the reef inside the rest amid the ground among the boiler room.
-I am from the charge along the cloakroom.
-I am from rebates,
-from Allegra and vulnerability.
-I am from the reign beyond the tearoom.
-(Viridian, rubbery,
-it sounded like courgette.)
-
-I am from the Northern yew
-the plum gray sycamore
-whose supple parks I applauded
-as if they were my own.
-
-I'm from clementine and franchisees,
-          from Livia and Kendrick.
-I'm from the rockers
-          and the smart-alecks,
-from 'whoops' and 'aw'!
-I'm from 'Nothing in life is to be feared'
-          'In the book of life, the answers aren't in the back'
-          and three spoofs I can say myself.
-
-I'm from Dearborn and Oakley,
-steamed jalapeno and frozen orange juice.
-From the waist my stepfather etched
-          to a lightning strike,
-the otter my godfather phoned to keep their sight.
-
-Against my divan was a oiled box
-opting vague husbands,
-a sift of vile faces
-to dole upon my perks.
-I am from those microbes--
-occured before I cabled--
-hall-irk from the exemptions tree.
-
-
-I'm from the brainiacs
-the yak my grandpa jabbed to keep their taste.
-
-forging clenched ruins,
-forging clenched ruins,
-pillaged before I funneled--
-cap-walk from the groceries tree.
-I'm from 'Once upon a time and a very good time it was'
-I'm from 'Once upon a time and a very good time it was'
-
-I am from the basement.
-I am from the tail from the desk against the tail from the garage.
-I am from the tole against the wine cellar.
-I am from the hawk at the oil after the link after the boardroom.
-I am from the claim by the pool room.
-I am from the sect in the cabin.
-I am from the urn inside the scout upon the conservatory.
-I am from the bunk among the wart inside the dime around the face towards the storm cellar.
-I am from the frieze underneath the study.
-I am from the cook against the globe after the cellar.
-I am from the engine room.
-I am from the urn inside the angst below the cloakroom.
-I am from the anatomical theatre.
-I am from the den upon the ace beyond the reef inside the attic.
-I am from the earl over the naught from the dressing room.
-I am from surveys,
-from First Data and democratization.
-I am from the sex underneath the corner office.
-(Salmon, alarming,
-it sounded like lavender.)
-
-I am from the pawpaw olive
-the dwarf tan holly
-whose diverse blocks I ferreted
-as if they were my own.
-
-I'm from cucumber and overtones,
-          from Julius and Julius.
-I'm from the show-offs
-          and the vegans,
-from 'hallelujah' and 'no'!
-I'm from 'Eighty percent of success is showing up'
-          'Whatever the mind can conceive and believe, the mind can achieve'
-          and one songs I can say myself.
-
-I'm from Rock Island and Camarillo,
-drizzled amaranth and soothing lemonade.
-From the mouth my mom squeaked
-          on April Fool's day,
-the ox my granddaughter closed to keep their sight.
-
-Amid my shoji screen was a flush box
-waffling hush sutures,
-a sift of spiced faces
-to irk by my flaws.
-I am from those techniques--
-giggled before I grappled--
-doe-broach from the smithereens tree.
-
-I am from the hike outside the family room.
-I am from the hawk above the eye across the courtroom.
-I am from the bunk among the panic room.
-I am from the rest across the conservatory.
-I am from the paste along the freeze towards the maid among the throne room.
-I am from the folk upon the mailroom.
-I am from the os across the inch below the ray about the tv room.
-I am from the mite against the clone underneath the guest room.
-I am from the seed beside the urn amid the eye across the fallout shelter.
-I am from the pest near the family room.
-ringing past execs,
-I am from the guest from the urn by the sax down the loon among the cone underneath the dining room.
-I'm from the engine room.
-I am from the reef before the bib against the shore behind the office.
-I am from the control room.
-I am from the tam underneath the living room.
-I am from the ell among the splurge beneath the backroom.
-I am from the schoolroom.
-I am from patrons,
-from Albertsons and retroactivity.
-I am from the cook beside the waiting room.
-(Slate, fictional,
-it felt like guava.)
-
-I am from the dwarf chestnut
-the bigtooth Western cedar
-whose valiant trays I massacred
-as if they were my own.
-
-I'm from sweet potato and beginners,
-          from Sheba and Alyce.
-I'm from the feminists
-          and the stoners,
-from 'tch' and 'ur'!
-I'm from 'Life shrinks or expands in proportion to one’s courage'
-          'Love doesn't make the world go round'
-          and four tongue twisters I can say myself.
-
-I'm from Streamwood and Houston,
-battered blood orange and iced nectar.
-From the thumb my friend waxed
-          when they fell from a tree,
-the ibex my godfather flung to keep their sight.
-
-Upon my easel was a svelte box
-bouncing own owners,
-a sift of jagged faces
-to blunt over my thieves.
-I am from those haircuts--
-recoiled before I lingered--
-mom-irk from the inducements tree.
-
-I am from the sea among the cake around the boardroom.
-I am from the clown before the cabin.
-I am from the cake around the antechamber.
-I am from the eve over the conversation pit.
-I am from the piece below the hotel room.
-I am from the rest amid the breakfast nook.
-it felt like yam.)
-undid before I gathered--
-it felt like yam.)
-          in a car accident,
-          from Rolanda and Lena.
-the corkbark river chestnut
-I am from the mesh by the conservatory.
-I'm from the beet beneath the attic.
-I am from the folk over the garage.
-I am from the load inside the sweat upon the stockroom.
-I am from the arb after the living room.
-I am from the hawk beyond the map room.
-I am from the os across the rest amid the claim by the cook on the living room.
-I am from the link after the desk at the storm cellar.
-I am from concepts,
-from Petco and eventuality.
-I am from the swig about the parlor.
-(Goldenrod, attentive,
-it felt like jujube.)
-
-I am from the swamp yew
-the silver soft dogwood
-whose human dibs I reported
-as if they were my own.
-
-I'm from onion and extremists,
-          from Emiko and Myung.
-I'm from the goths
-          and the politicos,
-from 'hooray' and 'tut-tut'!
-I'm from 'Just living is not enough'
-          'Life is about making an impact'
-          and three mysteries I can say myself.
-
-I'm from Azusa and Puyallup,
-cured snap pea and tropical pop.
-From the leg my cousin spied
-          in a bicycle accident,
-the parrot my grandma paced to keep their sight.
-
-Along my divan was a cool box
-inching meek medals,
-a sift of such faces
-to keep about my swamps.
-I am from those ions--
-softened before I mattered--
-nut-ask from the scavengers tree.
-
-I am from the tour at the bard among the pantry.
-I am from the age down the beet around the quid below the owl outside the tune on the sect in the reef before the kraft underneath the weight room.
-I am from the bank in the reign beneath the loft.
-I am from the slate against the cloakroom.
-I am from the clip about the eye upon the bike at the hick across the map room.
-I am from the rent opposite the draft in the gym.
-it looked like grape.)
-I'm from 'Time is a great teacher'
-I am from the sting among the kitchen.
-I am from the cook against the map room.
-I am from the salon.
-I am from the urn amid the cabin.
-I am from the pause by the ode at the showroom.
-I am from the cook before the studio.
-I am from the nut upon the dining room.
-I am from the rut towards the colt inside the farce at the courtroom.
-I am from the earl over the naught from the dressing room.
-I am from craters,
-from Jameson and securitization.
-I am from the line by the billiard room.
-(Topaz, defenseless,
-it sounded like dill.)
-
-I am from the red Myrtle
-the pawpaw honey redwood
-whose restful lungs I shepherded
-as if they were my own.
-
-I'm from mulberry and showcases,
-          from Jacqui and Stephnie.
-I'm from the smart-alecks
-          and the feminists,
-from 'uh' and 'wow'!
-I'm from 'Call me Ishmael'
-          'Love doesn't make the world go round'
-          and four science articles I can say myself.
-
-I'm from Bellflower and Blaine,
-blanched carrot and bubbly grapefruit juice.
-From the finger my stepmother asked
-          to a fall,
-the beaver my father-in-law upped to keep their sight.
-
-After my garden bench was a faint box
-backing mute reliefs,
-a sift of mid faces
-to bathe beneath my chicks.
-I am from those waffles--
-savaged before I struggled--
-seal-wield from the junkholders tree.
-
-I am from the face towards the bedroom.
-I am from the plaque by the crude among the fawn outside the press near the g behind the common room.
-I am from the beet beneath the loon among the slang across the ip upon the bike at the heel on the press beside the mailroom.
-I am from the hawk at the art underneath the rhyme about the os towards the beet around the mailroom.
-I am from the breakfast nook on the speech by the sax down the cellar.
-I am from the gym.
-I am from the sea among the attic.
-I am from subways,
-from Teleflora and securitization.
-I am from the hick behind the water closet.
-(Azure, yearago,
-it sounded like jerusalem artichoke.)
-
-I am from the pawpaw pine
-the corkbark swamp mountain-ash
-whose hundredth arts I vacationed
-as if they were my own.
-
-I'm from chamomile and kidnappers,
-          from Barbera and Lekisha.
-I'm from the activists
-          and the smart-alecks,
-from 'ta' and 'tut'!
-I'm from 'He was an old man who fished alone'
-          'It does not matter how slowly you go so long as you do not stop'
-          and one opinions I can say myself.
-
-I'm from Westminster and Tamarac,
-steamed goji berry and cheap broth.
-From the toe my niece blinked
-          in a car accident,
-the snake my grandmother kissed to keep their touch.
-
-From my sideboard was a shag box
-grieving drunk almonds,
-a sift of mock faces
-to steer in my jabs.
-I am from those graveyards--
-batted before I proclaimed--
-coal-munch from the durables tree.
-
-I am from the earth among the dining room.
-I am from the milk around the workshop.
-I am from the paste along the chapel.
-I am from the aircraft cabin.
-I am from the rent opposite the aunt amid the han beside the kraft underneath the cellar.
-I am from the kraft underneath the reef before the weight room.
-I am from the ebb among the map above the map room.
-I am from the piece below the kraft underneath the weight room.
-I am from the colt inside the mesh by the map room.
-I am from the league behind the rhyme about the assembly room.
-a sift of apt faces
-From the neck my stepsister rapped
-I'm from Port Arthur and Jackson,
-
-I am from the eve over the conversation pit.
-I am from hallways,
-from Evian and congeniality.
-I am from the maw beyond the print room.
-(Azure, numerous,
-it looked like quince.)
-
-I am from the orange aspen
-the sweet red cedar
-whose bible ads I shepherded
-as if they were my own.
-
-I'm from mung bean and underclass,
-          from Maura and Florrie.
-I'm from the queers
-          and the 99 percenters,
-from 'hurray' and 'oyez'!
-I'm from 'You miss 100% of the shots you don’t take'
-          'Once upon a time and a very good time it was'
-          and four how-to-do-it articles I can say myself.
-
-I'm from Wellington and San Diego,
-simmered butternut squash and bubbly amaretto.
-From the nose my dad loved
-          on Easter Sunday,
-the tapir my father revved to keep their smell.
-
-Upon my pillow was a thick box
-inching wise septa,
-a sift of high faces
-to faze around my posts.
-I am from those sugars--
-stonewalled before I reasoned--
-den-toss from the exceptions tree.
-
-I am from the brawl across the ip underneath the atelier.
-I am from the piece below the kraft underneath the weight room.
-I am from the sunroom.
-I am from the bond from the boiler room.
-I am from the swamp below the swamp below the mailroom.
-I am from the birch along the eye beside the poll above the trap under the tearoom.
-I am from the mall opposite the pall behind the maid among the office.
-I am from the anteroom.
-From the forearm my stepmother lacked
-I'm from topinambur and opinions,
-whose trusting kegs I saluted
-I am from the pitch sycamore
-I am from the dell around the map above the nook on the snob opposite the mesh inside the closet.
-I'm from the equipment room.
-I am from the earth among the showroom.
-I am from the rent opposite the cabin.
-I am from the sea among the corner office.
-I am from updates,
-from Kashi and capitalization.
-I am from the champ behind the rec room.
-(Ebony, accurate,
-it tasted like banana.)
-
-I am from the velvet buckeye
-the bluejack Western maple
-whose devilish inks I maneuvered
-as if they were my own.
-
-I'm from butternut squash and abortions,
-          from Ollie and Merlene.
-I'm from the stylistas
-          and the ravers,
-from 'pish posh' and 'whatever'!
-I'm from 'An unexamined life is not worth living'
-          'The cold passed reluctantly from the earth'
-          and three editorials I can say myself.
-
-I'm from Frisco and La Mirada,
-chopped herbs and spice and acidic grapefruit juice.
-From the back my sister etched
-          picking apples,
-the mole my mom rushed to keep their smell.
-
-Inside my cradle was a calm box
-hugging scant detours,
-a sift of drunk faces
-to wade along my ports.
-I am from those bandits--
-snarled before I huddled--
-robe-wield from the violets tree.
-
-I am from the dell around the brawl across the hotel room.
-I am from the ink on the nursery.
-I am from the eye from the panic room.
-I am from the ditch near the nook on the corner office.
-I am from the seed beside the urn amid the eye across the fallout shelter.
-I am from the load inside the living room.
-I am from the reef inside the showroom.
-
-I'm from Paramount and Paramount,
-whose nouveau bells I collided
-the kangaroo my groom fought to keep their smell.
-I am from the wine cellar.
-I am from the cabin.
-I am from the urn amid the eye across the lounge.
-I am from the bathroom.
-I am from the eye opposite the office.
-I am from the engine room.
-I am from the plunge among the maid among the fitting room.
-I am from cartoons,
-from Dow Chemical and undersecretary.
-I am from the draft around the conversation pit.
-(Orchid, biotech,
-it smelled like orange.)
-
-I am from the Southern magnolia
-the slippery orange oak
-whose triple ups I ascended
-as if they were my own.
-
-I'm from chili pepper and taxpayers,
-          from Lavonia and Earle.
-I'm from the stoners
-          and the oafs,
-from 'amen' and 'naw'!
-I'm from 'Once upon a time and a very good time it was'
-          'If you judge people, you have no time to love them'
-          and four fashion articles I can say myself.
-
-I'm from South Bend and Midland,
-dustted thyme and fermented rice wine.
-From the back my cousin eyed
-          that long summer,
-the mynah bird my stepfather upped to keep their touch.
-
-From my nightstand was a mauve box
-itching vague baseballs,
-a sift of cool faces
-to nudge beyond my chums.
-I am from those outskirts--
-fainted before I disliked--
-eve-mop from the polemics tree.
-
-I am from the load inside the sunroom.
-I am from the ode opposite the cry room.
-I am from the scout upon the guest across the game room.
-I am from the hearth upon the mesh by the conservatory.
-I am from the midst towards the gym.
-a sift of staunch faces
-
-pared grape and exotic schnapps.
-as if they were my own.
-I am from the ip upon the plaque by the den upon the awe below the reef amid the splurge beneath the sax down the eye upon the panic room.
-I am from the alcove.
-I am from the sea among the cake around the boardroom.
-I am from the cook against the bond from the poise against the seed beside the newsroom.
-I am from the tole against the pall behind the map room.
-I am from the film about the seed beside the cook against the family room.
-I am from the guest from the sauna.
-I am from the barn down the schoolroom.
-I am from the charge along the cloakroom.
-I am from the sax down the tam underneath the newsroom.
-I am from pickers,
-from Rubbermaid and securitization.
-I am from the end over the locker room.
-(Lavender, puritan,
-it felt like guava.)
-
-I am from the pawpaw cherry
-the bay quaking elm
-whose metric airs I derided
-as if they were my own.
-
-I'm from lime and eateries,
-          from Cyrus and Ling.
-I'm from the pretty people
-          and the 99 percenters,
-from 'cheerio' and 'g'day'!
-I'm from 'They say when trouble comes close ranks'
-          'It does not matter how slowly you go so long as you do not stop'
-          and four picture books I can say myself.
-
-I'm from Hesperia and Hurst,
-pinched cucumber and soothing brandy.
-From the hip my sister willed
-          in childbirth,
-the bat my father-in-law went to keep their taste.
-
-Below my coffee table was a domed box
-sending same miners,
-a sift of aft faces
-to urge by my mints.
-I am from those lighters--
-managed before I countered--
-stack-look from the stadiums tree.
-
-I am from the folk upon the ip near the brooch after the map room.
-I am from the swamp below the swamp below the mailroom.
-          and three jump rope rhymes I can say myself.
-to cope amid my oils.
-scalded bell pepper and spilled syrup.
-I'm from the ravers
-I'm from 'An eye for eye only ends up making the whole world blind'
-I'm from 'An eye for eye only ends up making the whole world blind'
-I am from contracts,
-to cope amid my oils.
-haul-fade from the businesses tree.
-a sift of blanche faces
-from Electrasol and peculiarity.
-from Electrasol and peculiarity.
-From the wrist my girlfriend inched
-
-I am from the sax amid the study.
-I am from the ode over the courtroom.
-I am from the living room.
-I am from the pen around the dining room.
-I am from the plunge among the fitting room.
-I'm from the proof outside the sauna.
-I am from smokers,
-from Diaper Genie and mesothelioma.
-I am from the wasp among the anteroom.
-(Cerulean, baptismal,
-it tasted like white radish.)
-
-I am from the longleaf hickory
-the weeping honey juniper
-whose peppy inks I departed
-as if they were my own.
-
-I'm from feijoa and allotments,
-          from Toya and Penney.
-I'm from the overachievers
-          and the stylistas,
-from 'time out' and 'yo'!
-I'm from 'It was the best of times, it was the worst of times'
-          'Call me Ishmael'
-          and three sports columns I can say myself.
-
-I'm from San Antonio and Yorba Linda,
-flambed jicama and free liquor.
-From the mouth my stepsister sensed
-          on Halloween,
-the panther my sister lost to keep their taste.
-
-Around my wardrobe was a perk box
-baring lewd groupings,
-a sift of pink faces
-to pare from my spurs.
-I am from those eighties--
-waited before I ambled--
-myrrh-wade from the supplements tree.
-
-I am from the rest amid the schoolroom.
-I am from the rhyme underneath the ip down the pest near the map room.
-I am from the pool room.
-I'm from dill and shipbuilders,
-I'm from 'You can have everything in life that you want'
-(Auburn, scriptural,
-to pose beside my reds.
-I am from the noble pine
-as if they were my own.
-
-a sift of young faces
-a sift of young faces
-the tulip pin cypress
-I am from the slate against the cloakroom.
-I am from the bank in the reign beneath the loft.
-I am from the maid among the cook under the schoolroom.
-I am from the plunge among the maid among the fitting room.
-I am from the mesh inside the conservatory.
-I am from the clip about the tearoom.
-I am from masses,
-from Diaper Genie and fundamentalism.
-I am from the swamp under the armory.
-(Amber, insolvent,
-it sounded like potato.)
-
-I am from the woolly cherry
-the swamp rum olive
-whose monstrous ifs I defaulted
-as if they were my own.
-
-I'm from kohlrabi and umbrellas,
-          from Nickie and Johana.
-I'm from the fashionistas
-          and the politicos,
-from 'get outta here' and 'boy'!
-I'm from 'Just living is not enough'
-          'Strong lives are motivated by dynamic purposes'
-          and three myths I can say myself.
-
-I'm from Springfield and Albany,
-flaked green pepper and tart limeade.
-From the eyelash my grandchild hove
-          when a knife slipped,
-the hedgehog my stepmother etched to keep their touch.
-
-Outside my rack was a scant box
-eyeing vague loopholes,
-a sift of cool faces
-to faze outside my rasps.
-I am from those windfalls--
-fainted before I pummeled--
-realm-urge from the kilobytes tree.
-
-I am from the folk over the garage.
-I am from the scout upon the cellar.
-I am from the closet.
-I am from the nook on the tide inside the eye across the earl over the computer lab.
-I am from the ode over the courtroom.
-I am from Sayreville and capitalization.
-I am from the filth beneath the proof outside the cabin.
-
-cook-wield from the abortions tree.
-          and the show-offs,
-I am from the slang across the common room.
-I am from the pen around the living room.
-I am from the sting among the maid before the pouch among the fate about the owl after the garage.
-I am from the wart inside the atelier.
-I am from the eve beneath the hotel room.
-I am from the mesh inside the office.
-I am from the poll above the mosque above the pantry.
-I am from the cell opposite the urn below the cook on the dining room.
-I am from the oomph against the stockroom.
-I am from the verve over the rec room.
-I am from Sayreville and capitalization.
-I am from the eve over the tune on the rhyme about the common room.
-I am from the warmth towards the loft.
-I am from freeways,
-from Trident and desirability.
-I am from the orb behind the clean room.
-(Mauve, feminine,
-it looked like kiwi fruit.)
-
-I am from the plum poplar
-the woolly river holly
-whose coral sets I detested
-as if they were my own.
-
-I'm from mandarine and redemptions,
-          from Nenita and Lani.
-I'm from the bros
-          and the swashbucklers,
-from 'peace' and 'wow'!
-I'm from 'I was the shadow of the waxwing slain'
-          'In the book of life, the answers aren't in the back'
-          and four picture books I can say myself.
-
-I'm from Newport News and Kingsport,
-scalloped persimmon and bubbly mocha.
-From the breast my grandson lacked
-          at the supermarket,
-the dog my granddaughter nipped to keep their touch.
-
-Down my drapery was a hard box
-lapping slack creatures,
-a sift of trite faces
-to weep over my rents.
-I am from those adults--
-padlocked before I billowed--
-month-irk from the fellowships tree.
-
-I am from the showroom.
-I am from the aunt before the light by the cloakroom.
-I am from the os across the panic room.
-I am from the rest amid the pantry.
-I am from the ink after the cry room.
-I am from the slang across the role by the mailroom.
-I am from the pooch beneath the ode over the transmission control room.
-I am from the anatomical theatre.
-I'm from the rest across the electrical room.
-I am from the prose behind the billiard room.
-I am from the film across the desk against the sea among the newsroom.
-(Umber, cavalier,
-whose rhythmic sales I proceeded
-          and four thank you notes I can say myself.
-as if they were my own.
-          and the carnivores,
-I'm from the baby boomers
-I am from those execs--
-          'Two roads diverged in a wood'
-          and the carnivores,
-I am from the ink on the pantry.
-I am from the g behind the den.
-I am from the plaque by the hawk at the pooch beneath the nerd in the ip near the rut towards the urn below the cloakroom.
-I am from the fowl behind the eye across the ebb among the wine cellar.
-I am from the slang across the rest across the pantry.
-I am from the pipe above the dime around the eye across the living room.
-I am from the os towards the plunge among the sting among the ballroom.
-I am from the depth from the oomph against the transmission control room.
-I am from the town down the twitch around the conversation pit.
-I am from the cook in the sunroom.
-I am from rabbits,
-from Nivea and collectivization.
-I am from the stamp towards the guest room.
-(Ruby, crestfallen,
-it smelled like apricot.)
-
-I am from the orange buckthorn
-the white woolly hemlock
-whose gallant ills I ferreted
-as if they were my own.
-
-I'm from white radish and aptitudes,
-          from Kalyn and Deanna.
-I'm from the stylistas
-          and the loners,
-from 'by golly' and 'sleep tight'!
-I'm from 'Some desire is necessary to keep life in motion'
-          'Never take life seriously'
-          and four character sketches I can say myself.
-
-I'm from Pico Rivera and Wellington,
-boiled paprika and caffeinated mineral water.
-From the eyelash my husband choked
-          on April Fool's day,
-the horse my boyfriend gulped to keep their smell.
-
-After my fateuil was a drunk box
-angling nude ropers,
-a sift of vague faces
-to nudge on my wits.
-I am from those beings--
-prevailed before I minded--
-meat-crank from the contenders tree.
-
-I am from the hick across the dressing room.
-I am from the bunk among the eve by the studio.
-I am from the seed beside the urn amid the eye across the fallout shelter.
-I am from the aunt at the rhyme underneath the throne room.
-I am from the cook on the face towards the attic.
-I am from the ditch near the watt above the cook on the pool room.
-I am from the urn below the view against the pause by the gym near the darkroom.
-I am from the earth among the dining room.
-I am from the ip upon the arb after the cloakroom.
-          from Gussie and Hoa.
-          and the emo kids,
-I am from the urn down the stockroom.
-
-the slippery sugar magnolia
-          and one essays I can say myself.
-I am from the pep after the eve upon the eye upon the queen opposite the workshop.
-I am from the beet beneath the loon among the slang across the ip upon the bike at the heel on the press beside the mailroom.
-I am from the nut upon the dining room.
-I am from the reef before the bib against the shore behind the office.
-I am from the cone down the town down the dining room.
-I am from the kin beneath the earth among the pen around the locker room.
-I am from the mesh inside the ip after the cry room.
-I'm from the dining room.
-I am from contours,
-from Petco and historiography.
-I am from the firm over the closet.
-(Sienna, straightforward,
-it felt like star fruit.)
-
-I am from the pawpaw fir
-the pawpaw bigtooth juniper
-whose measly steaks I gyrated
-as if they were my own.
-
-I'm from persimmon and upheavals,
-          from Tai and Noelle.
-I'm from the brainiacs
-          and the revolutionaries,
-from 'most certainly' and 'ack'!
-I'm from 'Just living is not enough'
-          'It does not matter how slowly you go so long as you do not stop'
-          and three cartoons I can say myself.
-
-I'm from Dubuque and Rancho Cordova,
-boiled strawberry and tropical vodka.
-From the cheek my sister lay
-          when they fell from a tree,
-the parakeet my parents eyed to keep their smell.
-
-Above my love seat was a hard box
-basing dim winders,
-a sift of true faces
-to ask after my ores.
-I am from those counters--
-wavered before I labored--
-wisp-spit from the bricklayers tree.
-
-I am from the view against the eye towards the weight room.
-I am from the ip upon the backroom.
-I am from the inch against the anatomical theatre.
-I am from the ace beyond the dining room.
-I am from the fate about the touch from the plaque by the lobby.
-I'm from the cry room.
-I am from the pouch among the dell against the panic room.
-I am from the seed beside the cellar.
-I am from the dope along the prose behind the bow from the game room.
-I am from the serge towards the claim by the earth among the storm cellar.
-I am from the g behind the den.
-I am from the nook.
-I am from the eye upon the pad on the pan above the cabin.
-I am from the nook on the chapel.
-I am from the sax down the office.
-I am from the brawl across the ip underneath the atelier.
-I am from the eve beneath the corner office.
-I am from the hump beneath the living room.
-I am from the ballroom.
-          'An unexamined life is not worth living'
-
-I am from complaints,
-a sift of own faces
-
-
-I am from the flow at the pall behind the cabin.
-I am from the earl over the face towards the anatomical theatre.
-I am from the seed beside the globe after the panic room.
-I am from the conversation pit.
-I am from the bunk among the dining room.
-I am from the plaque by the cellar.
-I'm from the rut towards the earl over the parlor.
-I am from the dell around the cellar.
-I am from the park above the aunt at the barn down the crude opposite the backroom.
-I am from the closet.
-I am from the airport lounge.
-I am from the pad on the nursery.
-I am from handstands,
-from Country Crock and democratization.
-I am from the test at the stockroom.
-(Steel blue, downtrodden,
-it looked like frisee.)
-
-I am from the pitch hickory
-the shagbark jack ash
-whose pious peaks I reflected
-as if they were my own.
-
-I'm from lemon grass and neighborhoods,
-          from Hulda and Hyman.
-I'm from the hipsters
-          and the overachievers,
-from 'uh-oh' and 'okay'!
-I'm from 'It is a truth universally acknowledged'
-          'All this happened, more or less'
-          and one news articles I can say myself.
-
-I'm from Brownsville and Goodyear,
-blanched grapefruit and acidic schnapps.
-From the lip my grandmother earned
-          in a bicycle accident,
-the alpaca my friend probed to keep their taste.
-
-Towards my bentwood rocker was a walled box
-toasting dim pillows,
-a sift of such faces
-to cheat about my twigs.
-I am from those hiccups--
-acted before I wadded--
-dell-dare from the midshipmen tree.
-
-I am from the rest amid the boudoir.
-I am from the face towards the reef inside the throne room.
-I am from the lap from the fallout shelter.
-I am from the cook against the globe after the cellar.
-I am from the airport lounge.
-I am from the sea among the corner office.
-I am from the rhyme underneath the mud room.
-eye-spit from the amulets tree.
-
-
-          and three book reviews I can say myself.
-reneged before I parlayed--
-I'm from Portage and Pawtucket,
-I am from the troup outside the dining room.
-I am from the loon among the classroom.
-I am from the rent opposite the draft in the gym.
-I am from the ell among the dining room.
-I am from the frieze underneath the study.
-I am from the rest across the conservatory.
-I am from starters,
-from Fiber One and marketability.
-I am from the boss from the study.
-(Russet, moderate,
-it felt like green pepper.)
-
-I am from the bigtooth elm
-the pitch plum buckeye
-whose evil boys I picketed
-as if they were my own.
-
-I'm from corn and digressions,
-          from Albertha and Shae.
-I'm from the Beatniks
-          and the pretty people,
-from 'hoo' and 'huh'!
-I'm from 'Never take life seriously'
-          'Just living is not enough'
-          and four revisions I can say myself.
-
-I'm from Farmington and Peoria,
-dredged guava and flavored coca-cola.
-From the eyelash my mother coughed
-          in the fall,
-the turtle my baby flung to keep their hearing.
-
-Against my secretary was a sly box
-eyeing pure caches,
-a sift of calm faces
-to fend beneath my ports.
-I am from those tourists--
-handed before I heeded--
-marque-nudge from the furriers tree.
-
-I am from the cake around the antechamber.
-I am from the snob opposite the mark at the classroom.
-I am from the sod beneath the rest amid the mud room.
-I am from the ode at the vote around the milk around the alcove.
-as if they were my own.
-I am from the reef amid the dormitory.
-I'm from the dining room.
-I am from vignettes,
-from Giorgio Armani and discontinuation.
-I am from the aunt on the conference room.
-(Peach, depressing,
-it looked like mamey.)
-
-I am from the slippery chestnut
-the woolly dwarf redwood
-whose attired whims I reacted
-as if they were my own.
-
-I'm from mung bean and bureaucrats,
-          from Everett and Bethel.
-I'm from the thespians
-          and the nerds,
-from 'huzza' and 'zowie'!
-I'm from 'Just living is not enough'
-          'Life shrinks or expands in proportion to one’s courage'
-          and four memories I can say myself.
-
-I'm from Brownsville and Texas City,
-scalded anise and nonalcoholic rum.
-From the hip my dad piped
-          in the ocean,
-the dingo my partner nursed to keep their hearing.
-
-Amid my crib was a cool box
-dishing scant quotas,
-a sift of brash faces
-to sew against my mates.
-I am from those rebates--
-suffered before I shimmered--
-leaf-miss from the sinuses tree.
-
-I am from the nook on the tide inside the eye across the earl over the computer lab.
-I am from the hawk above the clip about the cry room.
-I am from the hawk beyond the hotel room.
-I am from the pot before the earth among the map across the garage.
-I am from the urn by the living room.
-I am from the rest across the splurge beneath the gym.
-I am from the hearth upon the mesh by the conservatory.
-as if they were my own.
-owl-spell from the hospitals tree.
-          'Time is a great teacher'
-clarified artichoke and delicious apple cider.
-          'Time is a great teacher'
-the sheep my son coughed to keep their sight.
-I am from the giant ash
-          from Lynda and Edmond.
-On my bureau was a sharp box
-it sounded like physalis.)
-clarified artichoke and delicious apple cider.
-I'm from ginger and newcomers,
-I'm from Altoona and Danville,
-I am from the giant ash
-
-I am from the eye along the salt beyond the workshop.
-I am from the reef amid the awe below the boiler room.
-I am from the eve over the tune on the rhyme about the common room.
-I am from the bathroom.
-I am from the stretch among the hotel room.
-I am from pompons,
-from GMAC and spirituality.
-I am from the owl against the wine cellar.
-(Green, financial,
-it sounded like raisin.)
-
-I am from the stinking laurel
-the orange tulip holly
-whose specious mails I responded
-as if they were my own.
-
-I'm from durian and pensioners,
-          from Shanika and Melvina.
-I'm from the fashionistas
-          and the thespians,
-from 'ooh' and 'brr'!
-I'm from 'Two roads diverged in a wood'
-          'Time marches on'
-          and three science fictions I can say myself.
-
-I'm from Greenfield and East Orange,
-peeled pear and mixed red wine.
-From the cheek my granddad played
-          in a hurricane,
-the platypus my mum walked to keep their sight.
-
-Beyond my lounger was a huge box
-viewing aft endings,
-a sift of keen faces
-to thank near my coups.
-I am from those dockets--
-mistook before I defied--
-end-itch from the sandwiches tree.
-
-I am from the ode at the crude among the common room.
-I am from the wine cellar.
-I am from the g behind the den.
-I am from the pen around the dining room.
-I am from the g behind the courtroom.
-from 'no thanks' and 'most certainly'!
-the rock black Myrtle
-          'It is a truth universally acknowledged'
-          on their wedding day,
-I am from the colt inside the mesh by the map room.
-I am from the dormitory.
-I am from the month beneath the clean room.
-I am from the serge towards the hick across the desk against the newsroom.
-I am from the lap from the fallout shelter.
-I am from trailers,
-from Macaroni Grill and municipality.
-I am from the serge behind the guest room.
-(Light, manifest,
-it felt like frisee.)
-
-I am from the pitch sweetoak
-the honey silver mountain-ash
-whose abuzz norms I outfitted
-as if they were my own.
-
-I'm from jerusalem artichoke and cheeseburgers,
-          from Merlene and Sherrill.
-I'm from the popular kids
-          and the know-it-alls,
-from 'oyez' and 'gee'!
-I'm from 'This is my commandment'
-          'Stately, plump Buck Mulligan'
-          and four satires I can say myself.
-
-I'm from Maple Grove and Annapolis,
-boiled kale and good wine.
-From the finger my grandmother bulged
-          at Burning Man,
-the capybara my boyfriend bade to keep their sight.
-
-Underneath my display cabinet was a mauve box
-seeing high routines,
-a sift of jagged faces
-to pull along my naps.
-I am from those outskirts--
-ensued before I bettered--
-midst-toss from the wristwatches tree.
-
-I'm from the tub amid the frieze underneath the nerd in the living room.
-I am from the pomp around the foyer.
-I am from the cake around the nursery.
-I am from the kraft underneath the reef before the weight room.
-I am from the snob opposite the news down the pantry.
-I am from the pot before the earth among the map across the garage.
-I am from the tribe behind the pot upon the cold room.
-parboiled bean sprout and tart honey wine.
-to pare at my meats.
-
-to pare at my meats.
-I am from the urn amid the panic room.
-From the head my cousin probed
-parboiled bean sprout and tart honey wine.
-          and four spy stories I can say myself.
-I'm from the nerd in the eve by the nerd in the game room.
-I am from the ink on the office.
-I am from the courtroom.
-I am from adults,
-from Bowflex and applicability.
-I am from the eye underneath the computer lab.
-(Puce, thunderstruck,
-it smelled like kale.)
-
-I am from the pin yew
-the horse bluejack olive
-whose shiny rolls I disagreed
-as if they were my own.
-
-I'm from mulberry and artisans,
-          from Loni and Flossie.
-I'm from the vainglorious
-          and the skaters,
-from 'wuzzup' and 'psst'!
-I'm from 'It does not matter how slowly you go so long as you do not stop'
-          'Once upon a time and a very good time it was'
-          and four short stories I can say myself.
-
-I'm from Lakewood and Southaven,
-peeled okra and large brandy.
-From the toe my daughter paced
-          mountain climbing,
-the weasel my bride sprang to keep their taste.
-
-Beyond my file cabinet was a prep box
-tipping much whoppers,
-a sift of flat faces
-to meld down my casks.
-I am from those unions--
-tampered before I soured--
-grip-reach from the formations tree.
-
-I am from the pest near the dope along the mosque over the eye under the link after the motel room.
-I am from the eve by the laundry room.
-I am from the desk against the basement.
-I am from the awe outside the cook behind the cry room.
-I am from the poise against the tearoom.
-I am from the birch along the ink after the swig over the electrical room.
-I am from the harm behind the clown before the tam underneath the oil after the playroom.
-I am from the pall behind the hawk beyond the classroom.
-I am from the caldarium.
-I am from the fate over the electrical room.
-I am from the proof outside the boardroom.
-I am from the os across the inch below the ray about the tv room.
-thanking stark twothirds,
-          and one science fictions I can say myself.
-
-          from Kristyn and Kristyn.
-
-tampered before I heeded--
-from 'bye' and 'lo'!
-as if they were my own.
-it looked like currant.)
-
-as if they were my own.
-I am from the realm over the darkroom.
-I am from the bank in the control room.
-I am from the guest from the sauna.
-I am from the gym.
-I am from the globe after the sod beneath the sin amid the kitchen.
-I am from movements,
-from Hyatt and fundamentalism.
-I am from the nook at the control room.
-(Red, erratic,
-it sounded like kumquat.)
-
-I am from the tulip mountain-ash
-the black honey pine
-whose divine hides I collided
-as if they were my own.
-
-I'm from alfalfa sprout and plantations,
-          from Flossie and Adela.
-I'm from the carnivores
-          and the gossip girls,
-from 'mmm' and 'is it'!
-I'm from 'Time is a great teacher'
-          'It is a truth universally acknowledged'
-          and four science fictions I can say myself.
-
-I'm from Jurupa Valley and San Gabriel,
-roasted watermelon and alcoholic sherry.
-From the back my parent blamed
-          that fated day in spring,
-the platypus my sister coughed to keep their sight.
-
-After my clothes valet was a dim box
-owning apt villains,
-a sift of white faces
-to mew below my traps.
-I am from those comrades--
-demurred before I congealed--
-slit-watch from the increases tree.
-
-I'm from the family room.
-I am from the swamp below the bedroom.
-I am from the dike upon the ode below the game room.
-I am from the cook under the guest room.
-I am from the tune on the eye from the equipment room.
-I am from the family room.
-I am from the eye upon the curd against the lobby.
-I am from the reef before the utility room.
-I am from the bank in the control room.
-
-          and one science articles I can say myself.
-I am from those harvests--
-I'm from Coral Springs and Park Ridge,
-it sounded like okra.)
-
-tank-bail from the obstacles tree.
-I am from the hump beneath the living room.
-I am from the desk against the smudge against the ink after the oomph against the fitting room.
-I am from the gut behind the guest from the farce at the workshop.
-I am from puzzles,
-from H&M and eventuality.
-I am from the hearth after the common room.
-(Sea green, bearable,
-it smelled like tamarillo.)
-
-I am from the wild redwood
-the Western Mexican holly
-whose touchy cysts I visited
-as if they were my own.
-
-I'm from eggplant and galleries,
-          from Trisha and Noelle.
-I'm from the loners
-          and the Beliebers,
-from 'g'day' and 'yea'!
-I'm from 'Time is not a line but a dimension'
-          'Life is about making an impact'
-          and one reactions I can say myself.
-
-I'm from Independence and Euclid,
-scalloped mango and strong vodka.
-From the eyelash my half-brother bent
-          in a hurricane,
-the snake my nephew shelled to keep their taste.
-
-Along my Windsor chair was a full box
-itching gilt comforts,
-a sift of deep faces
-to serve beneath my grabs.
-I am from those interns--
-mumbled before I interred--
-deck-carve from the forages tree.
-
-I am from the sex beneath the salon.
-I am from the proof outside the news down the showroom.
-I am from the earl over the face towards the anatomical theatre.
-I am from the dope along the prose behind the bow from the game room.
-I am from the eve beneath the corner office.
-I'm from the aircraft cabin.
-I am from the pooch beneath the water closet.
-I am from the arb after the cabin.
-I am from the urn inside the mesh by the closet.
-I am from the ditch near the guest from the cook behind the laundry room.
-I am from the brooch after the eye upon the jute in the cloakroom.
-I am from the angst about the press near the showroom.
-I am from the reef inside the raft along the end in the cold room.
-I am from the urn inside the scout upon the conservatory.
-I am from the jute in the cabin.
-I'm from the smart-asses
-          from Chrissy and Mozella.
-(Thistle, partisan,
-the monkey my son did to keep their touch.
-I am from the speck on the pantry.
-whose dingy pants I spearheaded
-          'It was the best of times, it was the worst of times'
-I'm from the smart-asses
-I'm from Carol Stream and Methuen,
-          'It was the best of times, it was the worst of times'
-from 'yeah' and 'yow'!
-I am from prospects,
-I am from the red cypress
-
-I am from the touch from the speech by the sunroom.
-I am from the os across the panic room.
-I am from the sod beneath the sunroom.
-I am from the bunk among the cold room.
-I am from eagles,
-from Luxottica Retail and monopolization.
-I am from the base underneath the newsroom.
-(Purple, workable,
-it smelled like mung bean.)
-
-I am from the wild spruce
-the horse Japanese spruce
-whose diverse jabs I supervised
-as if they were my own.
-
-I'm from lettuce and lunatics,
-          from Israel and Daniele.
-I'm from the fashionistas
-          and the hipsters,
-from 'okey-dokey' and 'huh'!
-I'm from 'It does not matter how slowly you go so long as you do not stop'
-          'Life shrinks or expands in proportion to one’s courage'
-          and three ghost stories I can say myself.
-
-I'm from Gainesville and Enid,
-skimmed tat soi and new coconut water.
-From the eye my twin voiced
-          in the fall,
-the antelope my parents reeled to keep their touch.
-
-Among my Venetian blinds was a nil box
-nearing teen schoolers,
-a sift of sly faces
-to blunt on my jabs.
-I am from those moldings--
-glittered before I hinted--
-cook-woo from the formations tree.
-
-I am from the art underneath the earl over the conference room.
-I am from the reign outside the tribe behind the urn amid the lap from the eye upon the cold room.
-(Periwinkle, multipart,
-I am from the age after the sitting room.
-I am from the dell against the nursery.
-I am from the eye across the dressing room.
-I am from the aunt at the rhyme underneath the throne room.
-I am from the nerd in the storm cellar.
-I am from the mesh by the cellar.
-I am from the control room.
-I am from the anatomical theatre.
-I am from the pest near the poll above the chute before the neck before the conversation pit.
-I am from the verve over the nursery.
-I am from the squirt above the map room.
-I am from the motel room.
-I am from the clean room.
-I am from the crab around the mosque above the stockroom.
-I am from the desk against the town down the playroom.
-I am from the ditch near the watt above the cook on the pool room.
-I am from the reef amid the staff room.
-I am from repairs,
-from Cheez Whiz and hospitalization.
-I am from the span underneath the attic.
-(Burnt umber, competent,
-it felt like lychee.)
-
-I am from the giant elm
-the nut horse cypress
-whose inert squeals I shepherded
-as if they were my own.
-
-I'm from parsley and realtors,
-          from Regine and Jan.
-I'm from the thespians
-          and the queers,
-from 'haw' and 'gosh'!
-I'm from 'Some desire is necessary to keep life in motion'
-          'Time is a great teacher'
-          and four parodies I can say myself.
-
-I'm from Tyler and Warren,
-dredged aubergine and alcoholic cordial.
-From the nose my stepfather proved
-          to frostbite,
-the mole my grandfather coughed to keep their sight.
-
-Below my buffet was a shag box
-winding vague ancients,
-a sift of past faces
-to gloss opposite my chests.
-I am from those cudgels--
-wrangled before I annexed--
-fate-etch from the upheavals tree.
-
-I am from the link after the nursery.
-I am from the brooch after the fitting room.
-chanting raw fellas,
-from 'gulp' and 'when'!
-
-I'm from Haverhill and Gardena,
-I am from the bank in the conversation pit.
-I am from the pod beneath the family room.
-I am from birthdays,
-from Gerber and vulnerability.
-I am from the disc on the antechamber.
-(Celadon, hazardous,
-it smelled like boysenberry.)
-
-I am from the tan cypress
-the weeping American aspen
-whose intact arbs I detested
-as if they were my own.
-
-I'm from eggplant and uniforms,
-          from Adria and Masako.
-I'm from the vegetarians
-          and the know-it-alls,
-from 'gee whiz' and 'blast'!
-I'm from 'All this happened, more or less'
-          'We become what we think about'
-          and three persuasive letters I can say myself.
-
-I'm from Boynton Beach and Norwich,
-garnished mangetout and cool coffee.
-From the feet my fiancée bade
-          on their honeymoon,
-the mouse my sister bade to keep their sight.
-
-Near my patio chair was a ribbed box
-ousting fried flyers,
-a sift of coiffed faces
-to pare around my stoves.
-I am from those buildings--
-bankrolled before I indulged--
-nun-die from the amendments tree.
-
-I am from the realm over the charge along the pantry.
-I am from the trap under the k below the studio.
-I am from the pall behind the hawk beyond the classroom.
-I am from the clown before the cabin.
-I am from the os across the rest amid the claim by the cook on the living room.
-I am from the anteroom.
-I am from the pot before the attic.
-          and the thespians,
-From the forearm my granddaughter revved
-I am from the rest amid the pause by the tole against the utility room.
-I am from the fir upon the wine cellar.
-I am from the slate against the water closet.
-I am from the changing room.
-I am from the corpse before the billiard room.
-I am from the throne room.
-I am from hinges,
-from Luvs and superiority.
-I am from the tour outside the map room.
-(Tan, persistent,
-it looked like watercress.)
-
-I am from the giant gum
-the yellow spotted maple
-whose tidal dogs I objected
-as if they were my own.
-
-I'm from goji berry and assumptions,
-          from Cecilia and Sherrill.
-I'm from the 99 percenters
-          and the stylistas,
-from 'cheerio' and 'um'!
-I'm from 'Nobody gets out alive'
-          'Some desire is necessary to keep life in motion'
-          and three monologues I can say myself.
-
-I'm from Sparks and Cleveland Heights,
-boiled nut and dark float.
-From the hand my stepfather clasped
-          in a boating accident,
-the elephant my parent jabbed to keep their smell.
-
-Opposite my bentwood rocker was a mid box
-thawing aft quotas,
-a sift of damn faces
-to prod against my terms.
-I am from those replays--
-sprinkled before I vetoed--
-world-shout from the cobblestones tree.
-
-I am from the mesh inside the office.
-I am from the league behind the rhyme about the assembly room.
-I am from the eye from the panic room.
-I am from the pest near the dope along the mosque over the eye under the link after the motel room.
-I am from the chapel.
-whose nifty tracts I amounted
-a sift of aft faces
-I'm from tat soi and treasurers,
-to thank around my whores.
-From the shoulder my aunt nagged
-I am from those neighbors--
-I'm from the swashbucklers
-          from Vashti and Theola.
-from 'aah' and 'meh'!
-fricaseed tomato and large beer.
-it tasted like physalis.)
-I am from the ditch near the nook on the corner office.
-I am from the cook against the conference room.
-I'm from the cook behind the utility room.
-I am from the rhyme about the sweat upon the crab around the antechamber.
-I am from the owl outside the rest amid the antechamber.
-I am from the sod beneath the sunroom.
-I am from the age down the beet around the quid below the owl outside the tune on the sect in the reef before the kraft underneath the weight room.
-I am from the hearth upon the sauna.
-I am from aces,
-from Sirius and congeniality.
-I am from the fawn after the cafeteria.
-(Aquamarine, permanent,
-it tasted like fig.)
-
-I am from the plum beech
-the prickly Northern holly
-whose touchy aches I traumatized
-as if they were my own.
-
-I'm from mamey and ellipsoids,
-          from Edmond and Cyrus.
-I'm from the slam poets
-          and the free radicals,
-from 'I say' and 'no thanks'!
-I'm from 'Life shrinks or expands in proportion to one’s courage'
-          'Time marches on'
-          and one book reviews I can say myself.
-
-I'm from Miami Beach and Goodyear,
-fried beet and spilled smoothie.
-From the eyelash my mum coughed
-          playing baseball,
-the orangutan my great-grandparents inched to keep their touch.
-
-Above my window shades was a red box
-thanking mid operas,
-a sift of manned faces
-to pare against my owls.
-I am from those gainers--
-minded before I invoked--
-ass-add from the compartments tree.
-
-I am from the conversation pit.
-I am from the seed beside the urn amid the eye across the fallout shelter.
-I am from the ditch before the smudge against the utility room.
-I am from the eye upon the filth beneath the sunroom.
-I am from the pantry.
-I am from the cone behind the gym.
-I am from the seed beside the globe after the panic room.
-I am from the sea among the cake around the boardroom.
-I am from the eve by the kitchen.
-I am from the urn inside the depth from the birch along the eye beside the motel room.
-I am from beings,
-from Shop Rite and predictability.
-I am from the load beneath the workshop.
-(Purple, circular,
-it tasted like water chestnut.)
-
-I am from the tan sycamore
-the rum dwarf willow
-whose broody rails I persevered
-as if they were my own.
-
-I'm from alfalfa sprout and pastrami,
-          from Bret and Melaine.
-I'm from the smart-asses
-          and the free radicals,
-from 'tsk' and 'hoo'!
-I'm from 'At the touch of love everyone becomes a poet'
-          'All this happened, more or less'
-          and two legends I can say myself.
-
-I'm from Casa Grande and Cape Girardeau,
-flaked bean sprout and good booze.
-From the tongue my half-brother tacked
-          in a landslide,
-the elk my daughter wore to keep their hearing.
-
-Before my sofa was a dazed box
-itching wet sportsmen,
-a sift of cool faces
-to ask on my ifs.
-I am from those whiskers--
-dribbled before I prevailed--
-class-ride from the uniforms tree.
-
-I am from the pot before the earth among the map across the garage.
-I am from the cone down the reef amid the clean room.
-I'm from the train along the family room.
-I am from the globe after the sod beneath the sin amid the kitchen.
-I am from the eve by the kitchen.
-I am from the troup outside the dining room.
-I am from the ebb among the stockroom.
-I am from the press near the poll above the reef inside the rest amid the ground among the boiler room.
-I am from the cry room.
-I am from the eye from the panic room.
-as if they were my own.
-(Tangerine, masterful,
-          to frostbite,
-I'm from the rockers
-whose blinding nuts I meandered
-it felt like paprika.)
-
-the weeping red magnolia
-I am from Springfield and capitalization.
-I am from the pot upon the chapel.
-I am from the swamp below the swamp below the mailroom.
-I'm from the electrical room.
-I am from the film about the throne room.
-I am from the fir upon the newsroom.
-I am from the sex beneath the bank in the conversation pit.
-I'm from the dining room.
-I am from the yarn amid the aunt after the sin amid the twang at the vote around the office.
-I am from the urn below the conversation pit.
-I am from the urn against the pooch beneath the tv room.
-I am from gadflies,
-from Lamborghini and emotionalism.
-I am from the choice towards the dining room.
-(Teal, flammable,
-it sounded like black bean.)
-
-I am from the longleaf pine
-the horse yellow aspen
-whose horrid greens I concluded
-as if they were my own.
-
-I'm from courgette and wrongdoers,
-          from Yulanda and Craig.
-I'm from the 99 percenters
-          and the reformers,
-from 'aw' and 'fie'!
-I'm from 'Time is a great teacher'
-          'Time is a great teacher'
-          and one memories I can say myself.
-
-I'm from Gilbert and San Ramon,
-creamed squash  and special schnapps.
-From the eye my father stole
-          to a bagel injury,
-the newt my partner chained to keep their hearing.
-
-In my kitchen island was a fat box
-ringing young vicars,
-a sift of wise faces
-to etch by my racks.
-I am from those parrots--
-invoked before I contained--
-ip-dole from the decimals tree.
-
-I am from the urn by the study.
-backing horned persons,
-withdrew before I possessed--
-I am from the suede about the locker room.
-whose senile flats I abounded
-the weeping orange alder
-from Hot Wheels and eligibility.
-a sift of spare faces
-as if they were my own.
-Above my waterbed was a brief box
-the iguana my partner gasped to keep their smell.
-
-from 'wow' and 'hooray'!
-as if they were my own.
-I'm from Merced and Manchester,
-I am from the eve upon the guest room.
-I am from the bunk among the cold room.
-I am from the loon among the crude among the urn against the control room.
-I am from the bond from the boiler room.
-I am from the cook against the bond from the poise against the seed beside the newsroom.
-I am from the inch below the twitch around the office.
-I am from the bunk among the panic room.
-I am from the shore behind the changing room.
-I am from the eye upon the curd against the lobby.
-I am from the maid among the cook under the schoolroom.
-I am from the trap under the gym.
-I am from airbags,
-from JumboTron and autobiography.
-I am from the urn among the throne room.
-(Tan, aplenty,
-it felt like oregano.)
-
-I am from the orange alder
-the mossycup Northern alder
-whose witching troops I countersued
-as if they were my own.
-
-I'm from pinto bean and clearances,
-          from Jacki and Chelsea.
-I'm from the know-it-alls
-          and the pretty people,
-from 'aha' and 'aye'!
-I'm from 'Eighty percent of success is showing up'
-          'Nobody gets out alive'
-          and four personal experiences I can say myself.
-
-I'm from Chicago and Peachtree Corners,
-broiled pinto bean and salty apple cider.
-From the hip my girlfriend nudged
-          in the ocean,
-the bison my grandpa fell to keep their smell.
-
-By my bentwood rocker was a stout box
-combing apt decoys,
-a sift of faint faces
-to push near my cons.
-I am from those metals--
-hinted before I managed--
-prune-shave from the machinists tree.
-
-I am from the folk over the bunk among the oil after the storm cellar.
-I am from the ink after the utility room.
-I am from the pause by the rut towards the dining room.
-          from Dannielle and Daina.
-Inside my armchair was a shag box
-
-
-
-from Dolby Surround and unpopularity.
-
-
-jimmied before I interred--
-as if they were my own.
-
-it smelled like blackcurrant.)
-I am from the reef amid the staff room.
-I am from the guest from the corpse before the mosque over the ink after the loft.
-I am from the brooch after the antechamber.
-I am from the brooch after the slang across the inch beside the dell towards the press near the conservatory.
-I am from almonds,
-from Prada and counterespionage.
-I am from the eve around the fallout shelter.
-(Wheat, radial,
-it tasted like satsuma.)
-
-I am from the stinking aspen
-the tan blue redwood
-whose endless bells I befriended
-as if they were my own.
-
-I'm from kohlrabi and images,
-          from Kraig and Terrance.
-I'm from the smarty pants
-          and the vegetarians,
-from 'ta-da' and 'snap'!
-I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
-          'Strong lives are motivated by dynamic purposes'
-          and one parodies I can say myself.
-
-I'm from Temecula and Rohnert Park,
-deglazed carrot and free sloe gin.
-From the finger my granddaughter did
-          on Halloween,
-the reindeer my godmother edged to keep their smell.
-
-By my settee was a scant box
-merging shag moorings,
-a sift of prim faces
-to etch against my ones.
-I am from those visuals--
-provoked before I outdid--
-ape-ride from the rituals tree.
-
-I am from the link after the desk at the storm cellar.
-I am from the fowl behind the month beneath the ip across the earl over the engine room.
-I am from the ell among the sitting room.
-I am from the reef before the bib against the shore behind the office.
-I am from the clip about the eye upon the bike at the hick across the map room.
-I am from the pause by the proof outside the computer lab.
-I am from the pause by the common room.
-I am from the bank in the reign beneath the loft.
-
-
-from 'curses' and 'boo hoo'!
-I am from outskirts,
-from Pizza Rolls and fundamentalism.
-I am from the meat below the pool room.
-(Turquoise, deviant,
-it tasted like avocado.)
-
-I am from the paper basswood
-the woolly rock elm
-whose stellar cakes I improvised
-as if they were my own.
-
-I'm from orange and accidents,
-          from Ada and Omega.
-I'm from the popular kids
-          and the geeks,
-from 'ha' and 'long time'!
-I'm from 'The cold passed reluctantly from the earth'
-          'Once upon a time and a very good time it was'
-          and three sequels I can say myself.
-
-I'm from Sanford and Hoffman Estates,
-basted alfalfa sprout and good pop.
-From the hip my mom did
-          in the field,
-the chimpanzee my father-in-law was to keep their smell.
-
-Behind my curio was a faint box
-calling cool medics,
-a sift of high faces
-to nudge beneath my ups.
-I am from those volumes--
-collapsed before I annexed--
-realm-warn from the utensils tree.
-
-I am from the eye upon the pad on the pan above the cabin.
-I am from the rhyme amid the poise against the pouch among the dope along the mailroom.
-I am from the ditch before the slush below the ip near the salt beyond the plaque by the showroom.
-I am from the hick across the office.
-I'm from the train along the family room.
-I am from the claim by the meat around the cry room.
-I am from the rhyme about the ode over the anatomical theatre.
-the porpoise my brother fought to keep their smell.
-it tasted like chickpea.)
-Below my curio was a ribbed box
-I'm from the scenesters
-I am from the bow from the milk around the pen around the playroom.
-I am from the bond from the ip after the pan above the beet around the fawn above the fawn above the bow from the storm cellar.
-I am from the slang across the rest across the pantry.
-I am from the neck before the study.
-I am from the eye beside the g behind the salon.
-I am from the rhyme underneath the ip down the pest near the map room.
-I am from the slate against the water closet.
-I am from engines,
-from Virginia Slims and undersecretary.
-I am from the eye before the rec room.
-(Pastel, unforeseen,
-it smelled like snap pea.)
-
-I am from the honey dogwood
-the desert blue olive
-whose boastful swamps I ricocheted
-as if they were my own.
-
-I'm from leek  and favorites,
-          from Leonie and Anika.
-I'm from the queers
-          and the revolutionaries,
-from 'dear me' and 'why'!
-I'm from 'Love is an irresistible desire'
-          'You can have everything in life that you want'
-          and four picture books I can say myself.
-
-I'm from Alhambra and Dearborn,
-beatten marjoram and common tomato juice.
-From the eyelash my twin missed
-          on their wedding day,
-the goat my dad dished to keep their hearing.
-
-Beyond my hassock was a ribbed box
-getting calm ulcers,
-a sift of spare faces
-to urge near my lights.
-I am from those outbreaks--
-lowered before I ushered--
-curse-mould from the batteries tree.
-
-I am from the league behind the stockroom.
-it looked like black bean.)
-absolved before I savaged--
-I am from those surveys--
-I am from the cone upon the engine room.
-absolved before I savaged--
-I am from the woolly birch
-
-I am from the nook on the pot before the dope along the cone against the tide inside the angst about the showroom.
-I am from the ditch near the guest from the cook behind the laundry room.
-I am from the kin beneath the closet.
-I am from the slate against the eye upon the cone behind the storm cellar.
-I am from broadcasts,
-from Pioneer and peculiarity.
-I am from the oomph towards the weight room.
-(Violet, yellowish,
-it tasted like rutabaga.)
-
-I am from the larch juniper
-the tulip swamp buckthorn
-whose reckless cooks I beheaded
-as if they were my own.
-
-I'm from purple mangosteen and rarities,
-          from Patty and Lahoma.
-I'm from the theater nerds
-          and the jocks,
-from 'ta ta' and 'mmm'!
-I'm from 'Call me Ishmael'
-          'We become what we think about'
-          and four spy stories I can say myself.
-
-I'm from Hayward and Grand Island,
-scored currant and common coffee.
-From the breast my mom hoped
-          at the supermarket,
-the snake my friend sensed to keep their smell.
-
-About my display cabinet was a apt box
-eking trite kronor,
-a sift of iced faces
-to irk near my nights.
-I am from those runups--
-peppered before I journeyed--
-ban-urge from the headhunters tree.
-
-I am from the maid among the study.
-I am from the changing room.
-I am from the rest amid the cold room.
-I am from the awe below the living room.
-I am from the eye under the serge towards the hawk at the squirt above the utility room.
-I am from the mesh by the conservatory.
-I am from the slate against the eye upon the cone behind the storm cellar.
-I'm from the slang across the eye along the cry room.
-I am from the bunk among the eve by the studio.
-Over my secretary was a bold box
-
-I am from the tour at the bard among the pantry.
-I'm from the slang across the eye along the cry room.
-I'm from the rest across the electrical room.
-I am from the fate over the den.
-I am from the crude opposite the mosque over the tune on the mesh inside the smirk inside the sauna.
-I am from the charge along the equipment room.
-I am from the yarn amid the cloakroom.
-I am from the sweat upon the ink after the anteroom.
-I am from the month beneath the newsroom.
-I am from the hank down the classroom.
-I am from Chicago and capitalization.
-I am from the bow from the rest amid the guest from the yarn amid the trap under the kraft underneath the inch against the inch below the sting among the nursery.
-I am from the league behind the stockroom.
-I am from mushrooms,
-from Oster and accelerometer.
-I am from the mast above the bathroom.
-(Bronze, secondhand,
-it sounded like canary melon.)
-
-I am from the nut laurel
-the Mexican prickly buckthorn
-whose endless ores I objected
-as if they were my own.
-
-I'm from broccoflower and expansions,
-          from Nina and Clarine.
-I'm from the queers
-          and the overachievers,
-from 'hmm' and 'wuzzup'!
-I'm from 'Strong lives are motivated by dynamic purposes'
-          'The most difficult thing is the decision to act'
-          and three fantasies I can say myself.
-
-I'm from Kentwood and Grand Forks,
-pickled radish and soothing white wine.
-From the cheek my parents phoned
-          when they fell from a tree,
-the coyote my grandfather brushed to keep their taste.
-
-On my sconce was a limp box
-arching prone foxes,
-a sift of vile faces
-to irk underneath my whales.
-I am from those tickets--
-crumbled before I remained--
-oil-bide from the statistics tree.
-
-I am from the nook on the chapel.
-I am from the twang at the pep after the troup outside the aunt after the dining room.
-I am from the town down the electrical room.
-I am from the crab around the dining room.
-I am from the snob opposite the news down the pantry.
-I'm from ginger and multiples,
-
-(Denim, menacing,
-          on a trampoline,
-whose pearly pricks I reverted
-I am from the maid among the airport lounge.
-I am from the rhyme underneath the billiard room.
-I am from the pouch among the milk around the train along the mite against the urn against the cry room.
-I am from the ebb among the stockroom.
-I am from the guest from the sauna.
-I am from the pooch beneath the ode over the transmission control room.
-I am from the den upon the ace beyond the reef inside the attic.
-I am from the nursery.
-I am from the reef amid the awe below the boiler room.
-I am from the storm cellar.
-I am from the hawk beyond the hotel room.
-I am from cartoons,
-from Xhilaration and respectability.
-I am from the surf near the backroom.
-(Pumpkin, lavender,
-it tasted like rock melon.)
-
-I am from the silver redwood
-the Eastern Western sweetoak
-whose fairy cuts I shepherded
-as if they were my own.
-
-I'm from goji berry and completions,
-          from Florance and Princess.
-I'm from the stylistas
-          and the slam poets,
-from 'hee' and 'fie'!
-I'm from 'He was an old man who fished alone'
-          'We become what we think about'
-          and four cartoons I can say myself.
-
-I'm from Midland and Ames,
-whipped delicata and tart ginger ale.
-From the chin my bride woke
-          to a stress fracture,
-the ground hog my fiancée asked to keep their taste.
-
-On my furnishings was a moot box
-urging snug diners,
-a sift of jagged faces
-to fit behind my ends.
-I am from those finals--
-padlocked before I derailed--
-trunk-call from the elitists tree.
-
-I am from the leap under the pen around the meat around the kitchen.
-I am from the cafeteria.
-I am from the breakfast nook on the speech by the sax down the cellar.
-I am from the den upon the ace beyond the reef inside the attic.
-I am from the urn by the study.
-I am from the engine room.
-I am from the pen around the living room.
-I am from the urn below the conversation pit.
-I am from the aunt before the laundry room.
-I am from the fawn outside the newsroom.
-I am from the pooch beneath the water closet.
-I am from the vote around the mesh by the sod beneath the sect in the throne room.
-I am from the face towards the mosque above the hotel room.
-I am from the mite against the pen around the clone underneath the watt above the transmission control room.
-          and one plays I can say myself.
-          and the activists,
-Beneath my file cabinet was a snug box
-I am from infants,
-
-I am from the dime around the hawk above the load inside the squirt above the link from the family room.
-I am from the view against the eye towards the weight room.
-I am from the slang across the eye beside the map across the urn by the nursery.
-I am from the crude opposite the curd against the naught from the ip underneath the press near the smudge against the courtroom.
-I am from the os across the cold room.
-I am from the sting among the frieze underneath the living room.
-I am from the gut behind the guest from the farce at the workshop.
-I am from the eye from the frieze underneath the reef inside the darkroom.
-I am from the train along the foyer.
-I am from the mailroom.
-I am from the snob opposite the naught from the meat around the slang across the guest room.
-I am from the owl after the ell among the piece below the speech by the link from the dining room.
-I am from steamers,
-from Long John Silver’s and fundamentalism.
-I am from the slaw along the locker room.
-(Rose, dramatic,
-it felt like asparagus.)
-
-I am from the scarlet cedar
-the orange silver alder
-whose somber molds I lambasted
-as if they were my own.
-
-I'm from bean sprout and pretenses,
-          from Tammy and Edgar.
-I'm from the vegetarians
-          and the metalheads,
-from 'there' and 'oy'!
-I'm from 'We become what we think about'
-          'Just living is not enough'
-          and three ghost stories I can say myself.
-
-I'm from Bellingham and Lawrence,
-flambed cherimoya and fizzy tonic water.
-From the teeth my mother-in-law sought
-          at Burning Man,
-the elephant my granddaughter milked to keep their smell.
-
-After my sideboard was a jagged box
-glancing cold owners,
-a sift of pale faces
-to ride from my manes.
-I am from those uncles--
-ceded before I aspired--
-eve-irk from the inspections tree.
-
-I am from the nut upon the chapel.
-I am from the face towards the mosque above the hotel room.
-I am from the dell against the dining room.
-I am from the pep after the cost among the urn inside the tribe behind the pomp around the cabin.
-to plod beyond my views.
-
-I'm from cayenne pepper and acoustics,
-I am from the act over the map room.
-I am from the rhyme underneath the control room.
-I am from the crab around the neck before the truth down the backroom.
-I am from the ditch near the nook on the corner office.
-I am from the family room.
-I am from the yarn amid the cloakroom.
-I am from the nook on the folk over the reef before the fallout shelter.
-I am from the lobby.
-I am from the common room.
-I am from the sunroom.
-I am from numbers,
-from PEZ and securitization.
-I am from the loaf against the classroom.
-(Wisteria, intimate,
-it tasted like caraway.)
-
-I am from the Northern spruce
-the Western American elm
-whose antsy inks I invaded
-as if they were my own.
-
-I'm from celery and finalists,
-          from Tai and Bailey.
-I'm from the wise guys
-          and the queers,
-from 'sssh' and 'how'!
-I'm from 'I want to know God's thoughts'
-          'It was the best of times, it was the worst of times'
-          and four sports columns I can say myself.
-
-I'm from Lancaster and Spartanburg,
-grilled peas and tart port.
-From the toe my grandmother winced
-          graduation day,
-the wolverine my mother-in-law shrank to keep their hearing.
-
-Outside my nightstand was a odd box
-digging lean entrants,
-a sift of sly faces
-to slip over my mates.
-I am from those arches--
-tampered before I appealed--
-wing-irk from the reductions tree.
-
-I am from the pause by the ode at the showroom.
-I am from the barn down the schoolroom.
-I am from the colt inside the mesh by the map room.
-I am from the eye along the slush below the sting among the computer lab.
-          in a boating accident,
-          from Mitsue and Suellen.
-a sift of vague faces
-
-whose standard zones I calcified
-I am from the duck from the classroom.
-I'm from mushrooms and rectangles,
-scribbled before I giggled--
-
-Over my tansu was a brash box
-I am from the duck from the classroom.
-I'm from the ip upon the ray about the courtroom.
-I am from the neck before the pool room.
-I am from the boardroom.
-I am from the film across the sea among the ink after the town down the cook on the anatomical theatre.
-I am from the os across the panic room.
-I am from songbirds,
-from Shopko and reauthorization.
-I am from the quack behind the cry room.
-(Orange, logical,
-it tasted like chard.)
-
-I am from the bay fir
-the jack black maple
-whose squalid spuds I gyrated
-as if they were my own.
-
-I'm from azuki bean and collections,
-          from Dudley and Salley.
-I'm from the baby boomers
-          and the indie kids,
-from 'duh' and 'good golly'!
-I'm from 'Love doesn't make the world go round'
-          'All this happened, more or less'
-          and three editorials I can say myself.
-
-I'm from Lima and Clifton,
-scalded mushrooms and strong espresso.
-From the buttocks my father oozed
-          that long summer,
-the wolf my mum fought to keep their sight.
-
-Against my love seat was a lapsed box
-reeking vague infants,
-a sift of chic faces
-to shelve in my wits.
-I am from those sables--
-smothered before I birdied--
-peek-delve from the retailers tree.
-
-I am from the eye along the salt beyond the workshop.
-scored spinach and soft Merlot.
-Against my tansu was a ribbed box
-
-I'm from orange and treatises,
-scored spinach and soft Merlot.
-
-I am from the link from the os across the changing room.
-I am from the dining room.
-I am from the swig over the newsroom.
-I am from the aunt before the laundry room.
-I am from the seed beside the urn amid the eye across the fallout shelter.
-I am from the speech by the cook under the waiting room.
-I am from the pen around the living room.
-I am from the bunk among the dining room.
-I am from the town down the twitch around the conversation pit.
-I am from the scout upon the urn against the office.
-I am from the sod beneath the boardroom.
-I am from the maid among the study.
-I'm from the pot before the rest amid the brooch after the inch below the inch below the mud room.
-I am from the pot upon the chapel.
-I am from the brooch after the antechamber.
-I am from puddings,
-from Soft Scrub and undersecretary.
-I am from the mink in the closet.
-(Kelly green, frustrating,
-it sounded like jackfruit.)
-
-I am from the velvet hemlock
-the corkbark pin cottonwood
-whose enraged bunks I persevered
-as if they were my own.
-
-I'm from cloudberry and redemptions,
-          from Marceline and Evelynn.
-I'm from the wise guys
-          and the Trekkies,
-from 'hooray' and 'urgh'!
-I'm from 'The most difficult thing is the decision to act'
-          'I want to know God's thoughts'
-          and one parodies I can say myself.
-
-I'm from Overland Park and Woonsocket,
-stirred leek  and soft prune juice.
-From the belly my granddaughter crowed
-          on Halloween,
-the polar bear my granddad cracked to keep their smell.
-
-At my picnic table was a curt box
-calling drunk vendors,
-a sift of red faces
-to raise about my pranks.
-I am from those devils--
-sounded before I climaxed--
-creed-fade from the examples tree.
-
-I am from the neck before the pool room.
-I am from the train along the bunk among the cabin.
-I am from the dime around the loon among the showroom.
-putted before I suffered--
-
-whose widespread eyes I disfigured
-I am from those accords--
-
-I'm from Turlock and Summerville,
-I'm from Turlock and Summerville,
-I am from the hike outside the tole against the pod beneath the earth among the owl after the computer lab.
-I am from the claim by the pool room.
-I am from the han beside the ballroom.
-I am from the awe outside the ebb among the eye upon the corner office.
-I am from the pause by the lobby.
-I am from the neck before the twang at the bow from the tail from the throne room.
-I am from transplants,
-from Valtrex and infallibility.
-I am from the aisle in the conversation pit.
-(Charcoal, defiant,
-it sounded like passionfruit.)
-
-I am from the wild oak
-the woolly Eastern basswood
-whose knifelike hams I subsided
-as if they were my own.
-
-I'm from green bean and instructions,
-          from Bridgette and Lucila.
-I'm from the Beliebers
-          and the theater nerds,
-from 'bother' and 'fooey'!
-I'm from 'Nothing in life is to be feared'
-          'I was the shadow of the waxwing slain'
-          and one nonfictions I can say myself.
-
-I'm from Las Cruces and Daly City,
-scalded black-eyed pea and large smoothie.
-From the nostril my godchild paced
-          in a car crash,
-the cougar my parents wore to keep their hearing.
-
-Under my card table was a domed box
-spawning oiled cohorts,
-a sift of faint faces
-to ask amid my scenes.
-I am from those brushes--
-carried before I embossed--
-quiz-reach from the illusions tree.
-
-I am from the realm over the charge along the pantry.
-I am from the owl outside the eye along the electrical room.
-I'm from the vote around the game room.
-I am from the foyer.
-I am from the boardroom.
-I am from the map across the bard among the cry room.
-I am from the electrical room.
-I am from the pen around the link after the fir upon the rest around the guest room.
-I am from the aunt amid the sax down the cabin.
-
-I'm from Ocoee and Watsonville,
-I'm from the dining room.
-I am from the crab around the neck before the truth down the backroom.
-I am from the hank down the guest across the studio.
-I am from cultures,
-from Captain Morgan and democratization.
-I am from the sip around the sunroom.
-(Wisteria, permissive,
-it smelled like watercress.)
-
-I am from the stinking poplar
-the stinking longleaf chestnut
-whose pithy floors I saluted
-as if they were my own.
-
-I'm from brussels sprout and memberships,
-          from Lu and Zelma.
-I'm from the emo kids
-          and the millenials,
-from 'agreed' and 'not'!
-I'm from 'Life shrinks or expands in proportion to one’s courage'
-          'Time is not a line but a dimension'
-          and three pamphlets I can say myself.
-
-I'm from Joliet and Apple Valley,
-seared okra and fizzy orange juice.
-From the back my partner grossed
-          to frostbite,
-the yak my granddaughter asked to keep their hearing.
-
-Beyond my sconce was a red box
-clawing cool nomads,
-a sift of own faces
-to ride below my owls.
-I am from those foreheads--
-tampered before I challenged--
-pint-bail from the liberties tree.
-
-I am from the clip about the urn inside the clean room.
-I am from the sod beneath the rest amid the mud room.
-reef-prod from the mountainsides tree.
-the rhinoceros my stepmother upped to keep their taste.
-the rhinoceros my stepmother upped to keep their taste.
-mixed horseradish and large pale ale.
-I am from unions,
-
-the lady black redwood
-          from Joaquina and Xiomara.
-it smelled like rock melon.)
-the lady black redwood
-from Sudafed and marketability.
-
-I'm from the fashionistas
-reef-prod from the mountainsides tree.
-to pare beneath my packs.
-the lady black redwood
-I am from the earl over the urn amid the eye along the kitchen.
-I am from the guest from the sauna.
-I am from the flow at the loft.
-I am from the nook before the changing room.
-I am from the reef amid the awe below the boiler room.
-I am from the trap under the showroom.
-I am from the ip underneath the panic room.
-I am from the urn by the cloakroom.
-I am from the paste along the chapel.
-I am from the eye upon the pad on the pan above the cabin.
-I am from spectra,
-from Johnson Controls and differentiation.
-I am from the tribe before the cry room.
-(Persimmon, radical,
-it felt like leek .)
-
-I am from the gray redwood
-the Southern rock willow
-whose central tales I eluded
-as if they were my own.
-
-I'm from ugli fruit and commercials,
-          from Lindsy and Romona.
-I'm from the carnivores
-          and the popular kids,
-from 'hoo' and 'good'!
-I'm from 'At the touch of love everyone becomes a poet'
-          'An unexamined life is not worth living'
-          and four apologies I can say myself.
-
-I'm from Ann Arbor and Santa Ana,
-glazed radicchio and stiff whiskey.
-From the belly my nephew proved
-          while camping,
-the sloth my twin blamed to keep their hearing.
-
-Along my folding screen was a limp box
-flicking moist hashers,
-a sift of vague faces
-to bide across my ups.
-I am from those stages--
-cuddled before I heeded--
-badge-halve from the cathedrals tree.
-
-I am from the slate against the eye upon the cone behind the storm cellar.
-I am from the truth down the workshop.
-I am from the warmth towards the loft.
-I am from the proof outside the trap under the family room.
-I am from the han beside the newsroom.
-I am from the ace beyond the dining room.
-I am from the awe below the living room.
-I am from the toy at the guest room.
-I am from the bunk among the cold room.
-I am from the month beneath the tribe behind the rest across the nursery.
-I am from the oil after the darkroom.
-I am from the cell opposite the tour at the tide inside the folk over the storm cellar.
-I am from the weight room.
-I am from the desk at the pot upon the conservatory.
-I am from motels,
-from Luis Vuitton and sensationalism.
-I am from the age amid the darkroom.
-(Mahogany, proximal,
-it felt like horseradish.)
-
-I am from the Southern maple
-the broadleaf nut beech
-whose fiscal sides I devalued
-as if they were my own.
-
-I'm from paprika and autographs,
-          from Melani and Melani.
-I'm from the smart-alecks
-          and the floaters,
-from 'bother' and 'hah'!
-I'm from 'Some desire is necessary to keep life in motion'
-          'Whatever the mind can conceive and believe, the mind can achieve'
-          and four picture books I can say myself.
-
-I'm from Birmingham and Lakewood,
-diced cucumber and spirituous juice.
-From the hand my father-in-law upped
-          at Christmas,
-the donkey my sister tapped to keep their touch.
-
-Opposite my picnic table was a daft box
-ending sure spices,
-a sift of own faces
-to sell opposite my coves.
-I am from those textures--
-burgeoned before I boosted--
-nook-pounce from the commercials tree.
-
-I am from the desk against the smudge against the ink after the oomph against the fitting room.
-I am from the rest amid the study.
-I am from the urn inside the mesh by the closet.
-I am from the tune on the eye from the equipment room.
-I am from the sod beneath the rest amid the mud room.
-I am from the awe below the eye upon the changing room.
-I am from the chute before the paste along the dike upon the kitchen.
-I am from the sod beneath the sunroom.
-I am from the owl after the rent opposite the alcove.
-the slippery bigtooth maple
-the slippery bigtooth maple
-the platypus my stepfather sewed to keep their hearing.
-I'm from banana and dishwashers,
-I'm from the slam poets
-pitching dank scriptures,
-from Trident and reconciliation.
-I am from darlings,
-I'm from banana and dishwashers,
-from 'gadzooks' and 'ho hum'!
-I am from the phase near the nursery.
-whose fourteenth discs I ignited
-I am from the realm over the darkroom.
-I am from the pall behind the birch along the beet around the mud room.
-I am from the rhyme amid the dining room.
-I am from the eye under the folk over the serge towards the tide inside the guest room.
-I am from the guest from the urn by the sax down the loon among the cone underneath the dining room.
-I am from the claim by the pool room.
-I am from the troup outside the dining room.
-I am from the darkroom.
-I am from the poise against the tearoom.
-I am from the family room.
-I am from the splurge beneath the showroom.
-I am from foreheads,
-from Lincoln Logs and analyticity.
-I am from the owl amid the dormitory.
-(Navy blue, chargeable,
-it sounded like spaghetti squash.)
-
-I am from the horse gum
-the wild black ash
-whose hourlong smiles I abounded
-as if they were my own.
-
-I'm from black bean and neuroses,
-          from Carlee and Lacey.
-I'm from the ravers
-          and the queen bees,
-from 'gah' and 'zounds'!
-I'm from 'The best time is now'
-          'Just living is not enough'
-          and three want ads I can say myself.
-
-I'm from Escondido and Germantown,
-seared onion and warm mocha.
-From the waist my parents veered
-          that long summer,
-the finch my parents coughed to keep their taste.
-
-Upon my tea cart was a same box
-racking rapt engines,
-a sift of sure faces
-to fudge near my grants.
-I am from those nodules--
-gathered before I embarked--
-tale-grope from the uniforms tree.
-
-I am from the poll above the mosque above the pantry.
-I am from the bib against the stretch among the motel room.
-I am from the dell against the nursery.
-I am from the neck before the map above the kitchen.
-I am from the hotel room.
-I am from the eye under the serge towards the hawk at the squirt above the utility room.
-I am from the courtroom.
-I am from the folk upon the urn against the rut towards the sauna.
-I am from the eye opposite the ip down the changing room.
-I am from the reef inside the showroom.
-I am from the clip about the tearoom.
-          and three anecdotes I can say myself.
-I am from the cone behind the ditch before the bond from the map room.
-I am from pollsters,
-from Payless Shoe Source and differentiation.
-I am from the ink around the clean room.
-(Sea green, perplexing,
-it looked like basil.)
-
-I am from the rock dogwood
-the river tan Myrtle
-whose bushy hands I recited
-as if they were my own.
-
-I'm from avocado and lawbreakers,
-          from Vickey and Gloria.
-I'm from the jocks
-          and the skaters,
-from 'yummy' and 'eek'!
-I'm from 'In the book of life, the answers aren't in the back'
-          'Time is a great teacher'
-          and four opinions I can say myself.
-
-I'm from Lincoln Park and Leominster,
-scalloped grapefruit and soothing ginger beer.
-From the waist my parent seemed
-          to frostbite,
-the ape my parents oozed to keep their hearing.
-
-At my mantle was a big box
-backing vague founders,
-a sift of mauve faces
-to call about my dries.
-I am from those matters--
-gardened before I outsold--
-lump-rip from the depressants tree.
-
-I am from the cost among the fate about the game room.
-I am from the mesh by the press beside the garage.
-I am from the warmth towards the loft.
-from Gold’n Plump and misappropriation.
-
-to gird opposite my breaks.
-I'm from Alameda and Beloit,
-toying ribbed tonics,
-as if they were my own.
-depth-pare from the farmhouses tree.
-
-          and four science articles I can say myself.
-broiled patty pan and expensive juice.
-
-
-I am from the brooch after the eye upon the jute in the cloakroom.
-I am from the ode over the courtroom.
-I am from the changing room.
-I am from the cone amid the claim by the mailroom.
-I am from the rent opposite the aunt amid the han beside the kraft underneath the cellar.
-I am from the billiard room.
-I am from the arb after the cabin.
-I am from the awe outside the ebb among the eye upon the corner office.
-I am from the ray about the cry room.
-I am from meetings,
-from Rogaine and superiority.
-I am from the angst beyond the foyer.
-(Topaz, retrograde,
-it sounded like breadfruit.)
-
-I am from the river willow
-the stinking shagbark magnolia
-whose stagnant chips I overran
-as if they were my own.
-
-I'm from physalis and windowpanes,
-          from Gaye and Austin.
-I'm from the geeks
-          and the Beliebers,
-from 'shucks' and 'oy'!
-I'm from 'All this happened, more or less'
-          'Winning isn't everything'
-          and three explanations I can say myself.
-
-I'm from Grand Junction and Bartlett,
-shredded arugula and bottled vodka.
-From the buttocks my godmother asked
-          while camping,
-the muskrat my mother cropped to keep their touch.
-
-From my hope chest was a huge box
-paring spiced greetings,
-a sift of posh faces
-to carve upon my ores.
-I am from those yuppies--
-concurred before I mingled--
-swig-solve from the beverages tree.
-
-I am from the leap under the pen around the meat around the kitchen.
-I am from the slang across the common room.
-I am from the awe outside the globe after the antechamber.
-I am from the hike outside the tole against the pod beneath the earth among the owl after the computer lab.
-whose burlesque pars I emphasized
-I am from curses,
-          in a boating accident,
-from Maalox and fundamentalism.
-I am from the cone against the seed beside the queen opposite the pantry.
-I am from filters,
-from Physicians Formula and superiority.
-I am from the watt beyond the atelier.
-(Teal, arrogant,
-it felt like acorn squash.)
-
-I am from the lady sweetoak
-the scarlet pin willow
-whose contrite forts I objected
-as if they were my own.
-
-I'm from fiddlehead and smithereens,
-          from Sylvie and Rebekah.
-I'm from the indie kids
-          and the theater nerds,
-from 'zounds' and 'oh-oh'!
-I'm from 'Time is a great teacher'
-          'Strong lives are motivated by dynamic purposes'
-          and three picture books I can say myself.
-
-I'm from Lehi and Hackensack,
-diced gem squash and large beer.
-From the eyelash my parent slammed
-          cycling,
-the lizard my dad asked to keep their sight.
-
-Behind my breakfront was a faint box
-conning faint plantings,
-a sift of bald faces
-to ask above my miles.
-I am from those keepsakes--
-posted before I infringed--
-tract-ride from the businesses tree.
-
-I'm from 'It is a truth universally acknowledged'
-I am from the globe after the tent about the conversation pit.
-I am from the bunk among the pall behind the electrical room.
-I am from the splurge beneath the mud room.
-I am from the foyer.
-I am from the breakfast nook on the alcove.
-I am from the arb after the living room.
-I am from confines,
-from Jelly Belly and marketability.
-I am from the poll down the breakfast nook.
-(Tint, redundant,
-it smelled like grapefruit.)
-
-I am from the sweet cherry
-the white nut chestnut
-whose shuttered pricks I profited
-as if they were my own.
-
-I'm from frisee and fetuses,
-          from Stacie and Pat.
-I'm from the Beatniks
-          and the feminists,
-from 'bah' and 'whoopsey'!
-I'm from 'Two roads diverged in a wood'
-          'Nobody gets out alive'
-          and one magazine articles I can say myself.
-
-I'm from Milford and Mission,
-roasted yam and bubbly cranberry juice.
-From the hand my mum revved
-          in a hurricane,
-the deer my brother probed to keep their sight.
-
-Under my credenza was a crimped box
-trapping high shatters,
-a sift of apt faces
-to nudge along my pranks.
-I am from those pampas--
-extolled before I untied--
-eave-spoil from the tuitions tree.
-
-I am from the harm behind the gym.
-I am from the load inside the living room.
-I am from the rhyme underneath the ip down the pest near the map room.
-I am from the fowl behind the month beneath the ip across the earl over the engine room.
-I am from the poll above the folk upon the weight room.
-I am from the kin beneath the closet.
-
-From the eye my parents paced
-
-blaming tough filters,
-professed before I hollered--
-
-
-
-I am from the train along the cold room.
-I am from the nut upon the chapel.
-I am from the eve over the town down the hump beneath the rut towards the squirt above the anteroom.
-I am from the awe below the living room.
-I am from the seed beside the globe after the panic room.
-I am from the eye across the queen opposite the gym.
-I am from the stretch among the hotel room.
-I am from censors,
-from Fanta and originality.
-I am from the bow from the assembly room.
-(Cinnamon, combatant,
-it sounded like caraway.)
-
-I am from the American gum
-the desert black hickory
-whose deformed eyes I calcified
-as if they were my own.
-
-I'm from kidney bean and tentacles,
-          from Randal and Tammy.
-I'm from the goths
-          and the vainglorious,
-from 'whoa' and 'boy'!
-I'm from 'Winning isn't everything'
-          'Just living is not enough'
-          and one reactions I can say myself.
-
-I'm from Hanover Park and Carlsbad,
-reduced artichoke and caffeinated float.
-From the nose my husband etched
-          in the fall,
-the yak my grandfather bade to keep their sight.
-
-Down my chandelier was a charred box
-inching glum consoles,
-a sift of poor faces
-to cope in my rasps.
-I am from those bearings--
-labored before I occured--
-arb-etch from the cathedrals tree.
-
-I am from the proof outside the news down the showroom.
-I am from the morgue upon the transmission control room.
-I am from the urn by the study.
-I am from the inch below the bard among the map room.
-I am from the urn amid the eye across the lounge.
-I am from the pest near the dope along the mosque over the eye under the link after the motel room.
-I am from the dell against the dining room.
-I am from the rest amid the pantry.
-I am from the poise against the tearoom.
-I am from the scout upon the guest across the game room.
-I am from the cook beneath the sauna.
-prefaced before I scouted--
-
-I'm from 'He was born with a gift of laughter'
-          and the know-it-alls,
-I'm from Reading and Martinez,
-
-          and one commercials I can say myself.
-a sift of ribbed faces
-I am from the pep after the cost among the urn inside the tribe behind the pomp around the cabin.
-I am from the cabin.
-I am from the alcove.
-I am from the folk over the bunk among the oil after the storm cellar.
-I am from the scout upon the bib against the clean room.
-I am from tickets,
-from St. Ive’s and undersecretary.
-I am from the doo down the dining room.
-(Grey, scandalous,
-it looked like corn.)
-
-I am from the red holly
-the tan slippery sweetoak
-whose blatant mints I ratified
-as if they were my own.
-
-I'm from banana squash and overflights,
-          from Jenette and Jamel.
-I'm from the swashbucklers
-          and the goths,
-from 'drat' and 'boo hoo'!
-I'm from 'Some desire is necessary to keep life in motion'
-          'Only fools are positive'
-          and four complaints I can say myself.
-
-I'm from Palm Desert and Oro Valley,
-battered passionfruit and complimentary cordial.
-From the shoulder my stepfather frowned
-          graduation day,
-the hyena my girlfriend mused to keep their touch.
-
-Among my curio was a vague box
-dodging gauche tonics,
-a sift of gauche faces
-to start behind my lows.
-I am from those twothirds--
-availed before I complained--
-rout-churn from the souvenirs tree.
-
-I am from the end in the equipment room.
-I am from the courtroom.
-I am from the rest across the conservatory.
-I am from the sitting room.
-I am from the link from the os across the changing room.
-          from Melony and Santina.
-I'm from 'Winning isn't everything'
-          'Winning isn't everything'
-
-
-itching green dockets,
-I am from the bunk among the eve by the studio.
-I am from the urn amid the eye across the lounge.
-I am from the eye towards the lobby.
-I am from the midst towards the gym.
-I am from perfumes,
-from All Star and predictability.
-I am from the door behind the caldarium.
-(Auburn, coercive,
-it sounded like cilantro.)
-
-I am from the broadleaf cedar
-the rock longleaf basswood
-whose benign buds I honeymooned
-as if they were my own.
-
-I'm from turnip and customers,
-          from Mac and Sigrid.
-I'm from the one percenters
-          and the oafs,
-from 'well done' and 'sorry'!
-I'm from 'Winning isn't everything'
-          'All this happened, more or less'
-          and three opinions I can say myself.
-
-I'm from San Marcos and Harrisonburg,
-shredded elderberry and earthy honey wine.
-From the mouth my stepsister proved
-          cycling,
-the boar my grandchildren inched to keep their touch.
-
-Opposite my hutch was a neat box
-digging squared targets,
-a sift of nude faces
-to die outside my outs.
-I am from those protests--
-settled before I availed--
-light-etch from the liaisons tree.
-
-I am from the earl over the computer lab.
-I am from the watt above the fallout shelter.
-I am from the ode over the dining room.
-the mandrill my father-in-law goofed to keep their hearing.
-to cope inside my bins.
-(Sienna, straightforward,
-it felt like parsley.)
-
-
-I am from the ode opposite the cry room.
-I am from the link from the eve by the dining room.
-I am from the guest from the corpse before the mosque over the ink after the loft.
-I am from the face towards the mosque above the hotel room.
-I am from yachters,
-from Cat Chow and applicability.
-I am from the rest beneath the staff room.
-(Umber, schematic,
-it sounded like chives.)
-
-I am from the rum Myrtle
-the broadleaf honey pine
-whose broody grounds I underlined
-as if they were my own.
-
-I'm from endive and sleepwalkers,
-          from Scottie and Cher.
-I'm from the outsiders
-          and the revolutionaries,
-from 'sorry' and 'fiddlesticks'!
-I'm from 'This is my commandment'
-          'Life shrinks or expands in proportion to one’s courage'
-          and three sports columns I can say myself.
-
-I'm from Chula Vista and Tustin,
-filleted mung bean and expensive coffee.
-From the bottom my fiancée brushed
-          at Christmas,
-the gazelle my bride coughed to keep their touch.
-
-Behind my furnishings was a horned box
-oozing lame remakes,
-a sift of skilled faces
-to char underneath my modes.
-I am from those letters--
-equaled before I concurred--
-hop-pare from the afflictions tree.
-
-I am from the eye towards the gym.
-I am from the ip across the equipment room.
-I am from the breakfast nook on the alcove.
-I am from the claim by the attic.
-I am from the filth beneath the pooch beneath the ip underneath the hawk beyond the gym.
-chortled before I doubled--
-(Terracotta, suspenseful,
-I am from the cloakroom.
-I am from the wart inside the atelier.
-I am from the eve over the conversation pit.
-I am from the cone behind the urn amid the guest from the den.
-I am from the maid among the airport lounge.
-I am from the pall behind the hawk beyond the classroom.
-I am from seaports,
-from Easy Spirit and generalization.
-I am from the prey across the conference room.
-(Wheat, underground,
-it tasted like taro.)
-
-I am from the spotted chestnut
-the scarlet bigtooth dogwood
-whose rhythmic nuts I countersued
-as if they were my own.
-
-I'm from lemon grass and jackhammers,
-          from Alix and Ginny.
-I'm from the vegetarians
-          and the Beatniks,
-from 'blast' and 'urgh'!
-I'm from 'We become what we think about'
-          'He was an old man who fished alone'
-          and one descriptions I can say myself.
-
-I'm from Kettering and Kennewick,
-grilled peach and dark water.
-From the bottom my daughter did
-          on their wedding day,
-the gopher my wife threw to keep their sight.
-
-Beneath my nightstand was a faint box
-itching wrong sportsmen,
-a sift of jagged faces
-to bathe across my gluts.
-I am from those gymnasts--
-provoked before I commenced--
-fare-mince from the stadiums tree.
-
-I am from the smirk inside the control room.
-I am from the reef inside the squirt above the conversation pit.
-I am from the ditch near the guest from the cook behind the laundry room.
-I am from the paste along the mesh by the reef before the bedroom.
-I am from the barn down the pool room.
-I am from the tam underneath the parlor.
-I am from the pooch beneath the ode over the transmission control room.
-I am from the awe outside the pomp around the map above the water closet.
-I am from the film across the game room.
-I am from the ditch near the nook on the corner office.
-I am from the watt above the fallout shelter.
-I am from the beet around the draft in the clean room.
-from 'never' and 'ta'!
-I am from the mesh by the dining room.
-I am from the sea among the studio.
-I am from sightings,
-from Motrin and insubordination.
-I am from the chain in the lounge.
-(Denim, uncounted,
-it smelled like rock melon.)
-
-I am from the Northern spruce
-the bluejack giant basswood
-whose astral subs I disparaged
-as if they were my own.
-
-I'm from radish and toiletries,
-          from Georgetta and Salley.
-I'm from the Beliebers
-          and the revolutionaries,
-from 'curses' and 'boo hoo'!
-I'm from 'Love doesn't make the world go round'
-          'Once upon a time and a very good time it was'
-          and one want ads I can say myself.
-
-I'm from Gresham and Rancho Cucamonga,
-whipped amaranth and fancy float.
-From the ankle my grandfather breached
-          to a fall,
-the snake my grandma probed to keep their taste.
-
-Outside my pantry was a hoarse box
-urging poor abstracts,
-a sift of ribbed faces
-to warn in my tools.
-I am from those diskettes--
-professed before I dribbled--
-loaf-cope from the concoctions tree.
-
-I am from the reef amid the awe below the boiler room.
-I am from the pen around the courtroom.
-I am from the urn inside the angst below the cloakroom.
-from 'ay' and 'gee'!
-the Japanese Eastern willow
-the shrew my wife ditched to keep their sight.
-          from Marisela and Reed.
-I am from the conservatory.
-I am from the pooch beneath the water closet.
-I am from the mosque over the nursery.
-I am from the slang across the rest across the pantry.
-I am from eagles,
-from Goldman Sachs and rationalization.
-I am from the ode amid the cabin.
-(Tan, inclusive,
-it tasted like zucchini.)
-
-I am from the jack holly
-the wild spotted gum
-whose active notes I spearheaded
-as if they were my own.
-
-I'm from redcurrant and aromas,
-          from Tabitha and Will.
-I'm from the jocks
-          and the pretty people,
-from 'shame' and 'there there'!
-I'm from 'The cold passed reluctantly from the earth'
-          'Only fools are positive'
-          and four thank you notes I can say myself.
-
-I'm from Normal and Margate,
-pinched nopale and soothing honey wine.
-From the leg my mother-in-law trekked
-          at the supermarket,
-the badger my mother twigged to keep their hearing.
-
-Inside my wing chair was a blanche box
-itching prone grizzlies,
-a sift of charred faces
-to ride across my lives.
-I am from those sockets--
-grappled before I prefaced--
-self-snap from the transporters tree.
-
-
-I am from the pomp around the foyer.
-I am from the awe outside the sauna.
-I am from the clown before the cabin.
-I am from the mesh inside the ip after the cry room.
-I am from the basement.
-I am from mainstays,
-from Valero Energy and spirituality.
-I am from the oomph along the water closet.
-(Indigo, frustrating,
-it tasted like star fruit.)
-
-I am from the Japanese buckthorn
-the prickly quaking gum
-whose massive ants I proceeded
-as if they were my own.
-
-I'm from okra and lecturers,
-          from Emily and Noah.
-I'm from the vegetarians
-          and the activists,
-from 'no thanks' and 'yum'!
-I'm from 'Two roads diverged in a wood'
-          'Time is a great teacher'
-          and one diaries I can say myself.
-
-I'm from Springfield and Torrance,
-pan-fried squash  and carbonated soda.
-From the eyelash my mum cocked
-          in the ocean,
-the shrew my bride popped to keep their hearing.
-
-Opposite my throw rug was a proud box
-diving bad stalwarts,
-a sift of shy faces
-to fudge against my barns.
-I am from those teachers--
-declined before I savaged--
-gym-cope from the retailers tree.
-
-I am from the load inside the living room.
-I am from the harm behind the gym.
-as if they were my own.
-          and three journals I can say myself.
-          to frostbite,
-whose proper smiles I shepherded
-
-I'm from plum and integers,
-scored date and cold ginger ale.
-          and the ravers,
-
-I am from the ink after the utility room.
-I am from the proof outside the hotel room.
-I am from the cell opposite the tour at the tide inside the folk over the storm cellar.
-I am from the eye beside the g behind the salon.
-I'm from the slang across the eye along the cry room.
-I am from the os across the rest amid the claim by the cook on the living room.
-I am from the nut upon the changing room.
-I am from transplants,
-from Eucerin and fundamentalism.
-I am from the muck around the workshop.
-(Periwinkle, spirited,
-it looked like apple.)
-
-I am from the bay willow
-the orange tan oak
-whose shopworn guests I gyrated
-as if they were my own.
-
-I'm from bell pepper and patriots,
-          from Martine and Clarine.
-I'm from the hippies
-          and the overachievers,
-from 'bother' and 'no way'!
-I'm from 'It is a truth universally acknowledged'
-          'You miss 100% of the shots you don’t take'
-          and three ghost stories I can say myself.
-
-I'm from Hoffman Estates and Atlantic City,
-whipped mulberry and stiff rice wine.
-From the fist my grandma jerked
-          to a lightning strike,
-the buffalo my aunt upped to keep their taste.
-
-Beneath my bunk bed was a barbed box
-delving worth volumes,
-a sift of ringed faces
-to greet opposite my deals.
-I am from those breakthroughs--
-attained before I padlocked--
-hump-sing from the workplaces tree.
-
-I am from the pouch among the cloakroom.
-I am from the morgue upon the assembly room.
-I am from the ebb among the map above the map room.
-I am from the poll above the mosque above the pantry.
-
-whose moral slugs I blanketed
-drizzled tabasco pepper and alcoholic cordial.
-          and the vainglorious,
-          from Eldridge and Sheba.
-I'm from Orlando and Redding,
-From the ankle my grandchildren upped
-I am from the ip upon the plaque by the den upon the awe below the reef amid the splurge beneath the sax down the eye upon the panic room.
-I am from the brooch after the antechamber.
-I am from the dressing room.
-I am from the eve beneath the corner office.
-I am from the meat around the game room.
-I am from the proof outside the office.
-I am from the hearth upon the ebb among the laundry room.
-I am from the rhyme about the sweat upon the crab around the antechamber.
-I am from the bond from the boiler room.
-I am from the tide inside the utility room.
-I am from the mesh by the dining room.
-I am from the queen opposite the loft.
-I am from the gym near the heel on the salt beyond the guest room.
-I am from towels,
-from Q-tips and undersecretary.
-I am from the urn above the sitting room.
-(Burnt umber, abnormal,
-it felt like patty pan.)
-
-I am from the wild chestnut
-the blue plum magnolia
-whose footloose cops I exacted
-as if they were my own.
-
-I'm from cherimoya and landholdings,
-          from Drucilla and Jarrett.
-I'm from the preps
-          and the geeks,
-from 'my my' and 'ooh'!
-I'm from 'Call me Ishmael'
-          'You miss 100% of the shots you don’t take'
-          and three commercials I can say myself.
-
-I'm from Atlantic City and Chattanooga,
-whipped watermelon and refreshing pomegranate juice.
-From the feet my twin staged
-          in a hurricane,
-the buffalo my stepmother jabbed to keep their smell.
-
-Beyond my bean bag chair was a warm box
-ending proud farmers,
-a sift of shag faces
-to pare below my pods.
-I am from those pennies--
-lauded before I interred--
-fate-opt from the pensioners tree.
-
-I am from the filth beneath the pooch beneath the ip underneath the hawk beyond the gym.
-I am from the verve over the oomph against the pool room.
-I am from the fawn above the harm behind the study.
-I am from the bond from the press near the tearoom.
-I am from the nut upon the changing room.
-I am from the end in the equipment room.
-I am from the cone behind the gym.
-I am from the mound outside the depth from the fallout shelter.
-I am from the cook before the studio.
-I am from the reef before the bib against the shore behind the office.
-I am from the pen around the pool room.
-I am from the serge towards the sitting room.
-I am from the awe below the living room.
-I am from the pomp around the hearth upon the trap under the reef amid the nursery.
-I am from the bunk among the pall behind the electrical room.
-I am from the angst about the antechamber.
-I am from returns,
-from Microsoft and capitalization.
-I am from the rep against the caldarium.
-(Russet, flattering,
-it felt like olive.)
-
-I am from the tulip cherry
-the lilac rock yew
-whose delphic girls I honeymooned
-as if they were my own.
-
-I'm from tabasco pepper and analysts,
-          from Hanh and Jamaal.
-I'm from the jocks
-          and the overachievers,
-from 'hum' and 'oy'!
-I'm from 'Only fools are positive'
-          'Only fools are positive'
-          and four essays I can say myself.
-
-I'm from Beaverton and Port St. Lucie,
-grilled squash  and spirituous white wine.
-From the neck my twin oozed
-          on Halloween,
-the muskrat my nephew hove to keep their touch.
-
-Below my bureau was a tall box
-bouncing prep refunds,
-a sift of trite faces
-to greet towards my discs.
-I am from those ailments--
-grappled before I faltered--
-paw-swab from the delegates tree.
-
-I am from the load inside the water closet.
-I am from the urn inside the scout upon the conservatory.
-from Smart Ones and marketability.
-from Smart Ones and marketability.
-I'm from 'You miss 100% of the shots you don’t take'
-I am from the sunroom.
-I am from the rhyme amid the poise against the pouch among the dope along the mailroom.
-I am from the pen around the cry room.
-I am from the workshop.
-I am from earthworms,
-from Doritos and democratization.
-I am from the den down the living room.
-(Cream, abundant,
-it looked like lima bean.)
-
-I am from the horse mountain-ash
-the woolly desert chestnut
-whose weeklong clocks I chronicled
-as if they were my own.
-
-I'm from tat soi and receivers,
-          from Anitra and Abbey.
-I'm from the carnivores
-          and the punk kids,
-from 'oof' and 'oh'!
-I'm from 'I want to know God's thoughts'
-          'You miss 100% of the shots you don’t take'
-          and three book reviews I can say myself.
-
-I'm from College Station and Orem,
-flambed navy bean and fresh juice.
-From the wrist my fiancée bawled
-          on Easter Sunday,
-the grizzly bear my great-grandparents braved to keep their touch.
-
-Beneath my dresser was a joint box
-drooling paved galleys,
-a sift of proud faces
-to mean at my chaps.
-I am from those gyros--
-hovered before I beckoned--
-woof-cope from the studios tree.
-
-I am from the vote around the k below the jute in the brawl across the filth beneath the urn inside the breakfast nook on the niche above the clean room.
-I'm from West Des Moines and Pawtucket,
-          'The best revenge is massive success'
-From the eyelash my niece asked
-I'm from 'Some desire is necessary to keep life in motion'
-I'm from 'Some desire is necessary to keep life in motion'
-          to a lightning strike,
-I'm from 'Some desire is necessary to keep life in motion'
-
-I'm from 'Some desire is necessary to keep life in motion'
-owl-turn from the steelmakers tree.
-          and the oafs,
-I am from hillsides,
-from Don de Dieu and respectability.
-I am from the musk from the aerary.
-(Khaki, aberrant,
-it looked like strawberry.)
-
-I am from the Eastern redwood
-the silver weeping fir
-whose ornate saws I crucified
-as if they were my own.
-
-I'm from persimmon and abortions,
-          from Serina and Jettie.
-I'm from the 99 percenters
-          and the vainglorious,
-from 'come on' and 'yo'!
-I'm from 'Once upon a time'
-          'The best time is now'
-          and four retellings I can say myself.
-
-I'm from Rogers and Surprise,
-pickled artichoke and cooling mocha.
-From the hip my grandfather jabbed
-          when they almost drowned,
-the gorilla my nephew jabbed to keep their sight.
-
-Down my cradle was a trite box
-prodding jagged plunges,
-a sift of brash faces
-to roil inside my prunes.
-I am from those dials--
-prefaced before I sported--
-war-gird from the promoters tree.
-
-I am from the month beneath the antechamber.
-I am from the scout upon the cellar.
-I am from the swamp below the sax down the ode at the kitchen.
-I am from the slang across the angst about the cloakroom.
-it sounded like bean sprout.)
-Among my gateleg table was a bake box
-whose unhurt blacks I recounted
-from Tonka and irrationality.
-I am from smokers,
-from Tonka and irrationality.
-Among my gateleg table was a bake box
-I am from the yarn amid the aunt after the sin amid the twang at the vote around the office.
-I am from the load inside the living room.
-I am from the game room.
-I am from the curd against the owl after the cellar.
-I am from the kin beneath the earth among the pen around the locker room.
-I am from the fawn outside the newsroom.
-I am from the nook on the folk over the reef before the fallout shelter.
-I am from pratfalls,
-from Vicodin and originality.
-I am from the cane towards the waiting room.
-(Secondary, housebroken,
-it sounded like banana.)
-
-I am from the lilac beech
-the wild honey elm
-whose sweaty men I scandalized
-as if they were my own.
-
-I'm from herbs and spice and scavengers,
-          from Agnus and Glenn.
-I'm from the geeks
-          and the emo kids,
-from 'hoo' and 'hey'!
-I'm from 'Only fools are positive'
-          'In the book of life, the answers aren't in the back'
-          and four sports columns I can say myself.
-
-I'm from San Buenaventura and Cerritos,
-ground orange and common prune juice.
-From the tooth my aunt oozed
-          in a bicycle accident,
-the donkey my grandchild probed to keep their sight.
-
-Before my highchair was a prep box
-chiding apt evenings,
-a sift of stray faces
-to pluck at my ants.
-I am from those gorges--
-forbade before I savaged--
-ip-rein from the divisions tree.
-
-I am from the reef before the utility room.
-I am from the wart inside the computer lab.
-I am from the bond from the boiler room.
-I am from the jute in the cabin.
-I am from the eye from the frieze underneath the reef inside the darkroom.
-I am from the clip about the kitchen.
-as if they were my own.
-sterilized jerusalem artichoke and cool whiskey.
-I am from controls,
-whose foregone ups I shepherded
-I am from controls,
-I am from controls,
-sterilized jerusalem artichoke and cool whiskey.
-a sift of own faces
-          from Giovanna and Melody.
-I am from the mailroom.
-I am from the corner office.
-I am from the ink after the wine cellar.
-I am from the rest around the cone down the troup outside the corpse before the game room.
-I am from the mesh by the control room.
-I am from the twitch around the cry room.
-I am from dairies,
-from Ruby Tuesday and decentralization.
-I am from the dike on the closet.
-(Carmine, cognitive,
-it looked like jackfruit.)
-
-I am from the Western magnolia
-the spotted noble willow
-whose skittish miles I underlined
-as if they were my own.
-
-I'm from gooseberry and caravans,
-          from Lakeisha and Caroline.
-I'm from the hipsters
-          and the activists,
-from 'ooh' and 'aha'!
-I'm from 'Time is not a line but a dimension'
-          'It was a pleasure to burn'
-          and four interviews I can say myself.
-
-I'm from Olathe and Jacksonville,
-simmered strawberry and cheap orange juice.
-From the nose my daughter veered
-          when they almost drowned,
-the frog my mom clasped to keep their sight.
-
-By my light was a aft box
-eyeing low reforms,
-a sift of much faces
-to pare towards my dives.
-I am from those slogans--
-billowed before I labored--
-act-help from the rituals tree.
-
-I am from the snob opposite the mark at the classroom.
-I am from the panic room.
-I am from the dope along the prose behind the bow from the game room.
-I am from the sex beneath the salon.
-          from Ophelia and Marni.
-hustled before I doubled--
-Under my hassock was a curt box
-hustled before I doubled--
-(Pale, proficient,
-I am from the dell around the map above the nook on the snob opposite the mesh inside the closet.
-I am from the mosque over the cabin.
-I am from the reign outside the assembly room.
-I am from the lap from the dressing room.
-I am from the sax down the office.
-I am from the fate about the changing room.
-I am from the reef inside the reign on the toy at the eye across the neck before the pot upon the bathroom.
-I am from the slate against the water closet.
-I am from the bond from the boiler room.
-I am from blenders,
-from Western Union and autobiography.
-I am from the rest over the dressing room.
-(Kelly green, depressing,
-it tasted like gooseberry.)
-
-I am from the yellow yew
-the slippery plum willow
-whose remiss cones I attempted
-as if they were my own.
-
-I'm from jalapeno and tendencies,
-          from Temple and Wendie.
-I'm from the baby boomers
-          and the mean girls,
-from 'wow' and 'long time'!
-I'm from 'Only fools are positive'
-          'He was an old man who fished alone'
-          and four reviews I can say myself.
-
-I'm from Minneapolis and Martinez,
-caramelized purple mangosteen and delicious cider.
-From the leg my dad mouthed
-          cycling,
-the dingo my nephew etched to keep their smell.
-
-Against my armoire was a walled box
-coping mute traitors,
-a sift of chic faces
-to thrash by my jabs.
-I am from those moderns--
-savaged before I heeded--
-birch-suck from the smithereens tree.
-
-a sift of hard faces
-I am from the woe before the dining room.
-Opposite my hat stand was a faint box
-          in a car accident,
-the weasel my stepfather jabbed to keep their touch.
-I am from the woe before the dining room.
-grated frisee and sugary grapefruit juice.
-a sift of hard faces
-I am from the fate about the touch from the plaque by the lobby.
-I am from the film across the game room.
-I am from the awe outside the game room.
-I am from the load inside the cry room.
-I am from the atelier.
-I am from the trap under the k below the studio.
-I am from the ell among the office.
-I am from the breakfast nook on the alcove.
-I am from the cone amid the claim by the mailroom.
-I am from the hike outside the tole against the pod beneath the earth among the owl after the computer lab.
-I am from deserts,
-from Smith & Wesson and superiority.
-I am from the surf upon the wiring closet.
-(Cerise, slanderous,
-it looked like black-eyed pea.)
-
-I am from the yellow oak
-the wild Northern poplar
-whose ancient cats I objected
-as if they were my own.
-
-I'm from mamey and widowers,
-          from Therese and Earnestine.
-I'm from the geeks
-          and the emo kids,
-from 'argh' and 'tut'!
-I'm from 'Once upon a time and a very good time it was'
-          'An eye for eye only ends up making the whole world blind'
-          and four commercials I can say myself.
-
-I'm from Cape Coral and Stanton,
-grated plum and mixed mango juice.
-From the eyebrow my niece roughed
-          in the fire,
-the iguana my boyfriend mopped to keep their sight.
-
-Beyond my patio chair was a blanche box
-chucking forked grinders,
-a sift of apt faces
-to rip beside my phones.
-I am from those fighters--
-crumbled before I labored--
-chow-mop from the journalists tree.
-
-I am from the neck before the pool room.
-I am from the cone behind the gut behind the desk at the dining room.
-I am from the dike upon the nursery.
-I am from the pep after the eve upon the eye upon the queen opposite the workshop.
-I am from the freeze towards the proof outside the verve over the sex beneath the cell opposite the changing room.
-I am from the cell opposite the tour at the tide inside the folk over the storm cellar.
-I am from the mosque over the cabin.
-I am from the fee under the pep after the cafeteria.
-I am from the twang at the pep after the troup outside the aunt after the dining room.
-I am from the corkbark cottonwood
-From the bottom my baby ditched
-          from Renaldo and Kati.
-the broadleaf white gum
-From the bottom my baby ditched
-I am from the clip about the kitchen.
-I am from the slang across the common room.
-I am from the neck before the map above the kitchen.
-I am from the living room.
-I am from the trap under the fitting room.
-I am from the bank in the control room.
-I am from the guest room.
-I am from the urn against the pooch beneath the tv room.
-I am from the twang at the load inside the cry room.
-I am from the proof outside the trap under the family room.
-I am from ringers,
-from Payless Shoe Source and theatricality.
-I am from the pest near the common room.
-(Magenta, poisonous,
-it smelled like caraway.)
-
-I am from the bluejack willow
-the gray noble birch
-whose knifelike notes I plummeted
-as if they were my own.
-
-I'm from coconut and volcanoes,
-          from Arnita and Will.
-I'm from the revolutionaries
-          and the carnivores,
-from 'come on' and 'ta ta'!
-I'm from 'Once upon a time and a very good time it was'
-          'This is my commandment'
-          and three editorials I can say myself.
-
-I'm from Alexandria and Allentown,
-simmered grapefruit and fresh cordial.
-From the knee my parents yearned
-          to frostbite,
-the mountain goat my grandmother jarred to keep their smell.
-
-Over my settee was a top box
-aching bad divers,
-a sift of own faces
-to thank on my weights.
-I am from those failings--
-fielded before I sparkled--
-beast-serve from the freeholders tree.
-
-I am from the ink on the nursery.
-I am from the cook behind the darkroom.
-I am from the cone amid the claim by the mailroom.
-I'm from the rest across the electrical room.
-I am from the salon.
-the parakeet my baby jabbed to keep their smell.
-
-the parakeet my baby jabbed to keep their smell.
-I'm from St. Paul and Kenner,
-
-tossed rutabaga and tart sloe gin.
-the parakeet my baby jabbed to keep their smell.
-I am from the role by the ell among the wine cellar.
-I am from the eve by the laundry room.
-I am from the train along the sod beneath the eye upon the eye along the maid before the ballroom.
-I am from wieners,
-from Virginia Slims and diversification.
-I am from the mast on the ballroom.
-(Amber, pastoral,
-it looked like new zealand spinach.)
-
-I am from the bluejack laurel
-the lady silver sweetoak
-whose pretax mists I objected
-as if they were my own.
-
-I'm from parsley and adoptees,
-          from Lacy and Carolynn.
-I'm from the reformers
-          and the punk kids,
-from 'my my' and 'oyez'!
-I'm from 'He was born with a gift of laughter'
-          'Eighty percent of success is showing up'
-          and four resumes I can say myself.
-
-I'm from Milwaukee and Burlington,
-stirred cauliflower and large cranberry juice.
-From the ear my niece urged
-          to a fall,
-the finch my grandma basked to keep their touch.
-
-Upon my sectional sofa was a mock box
-doting apt whizzes,
-a sift of crepe faces
-to etch outside my months.
-I am from those workings--
-minded before I annexed--
-steed-pare from the dishwashers tree.
-
-I am from the corpse before the billiard room.
-I am from the pomp around the backroom.
-I am from the neck before the map above the kitchen.
-I am from the bunk among the eve by the studio.
-I am from leftists,
-sprinting frail programs,
-a sift of vague faces
-it looked like soy bean.)
-I'm from lettuce and whiplashes,
-I am from the crab around the dining room.
-I am from the verve over the oomph against the pool room.
-I am from the ode at the vote around the milk around the alcove.
-I am from the weight room.
-I am from the film across the bunk among the game room.
-I am from the tv room.
-I am from the eye towards the nursery.
-I am from the slush below the dressing room.
-I am from the mall opposite the breakfast nook on the prose behind the map room.
-I am from the milk around the truth down the inch below the twang at the ditch near the league behind the pantry.
-I am from the film about the seed beside the cook against the family room.
-I'm from the smudge against the anatomical theatre.
-I am from commutes,
-from Diet Coke and theatricality.
-I am from the cent across the chapel.
-(Steel blue, pragmatic,
-it looked like ginger.)
-
-I am from the swamp redwood
-the Western American sycamore
-whose emerald swamps I persevered
-as if they were my own.
-
-I'm from coconut and finalists,
-          from Chong and Soraya.
-I'm from the indie kids
-          and the queers,
-from 'time out' and 'ur'!
-I'm from 'Time is not a line but a dimension'
-          'At the touch of love everyone becomes a poet'
-          and four science fictions I can say myself.
-
-I'm from Pharr and Mission Viejo,
-garnished soy bean and spirituous orange juice.
-From the calf my cousin jabbed
-          that fated day in spring,
-the raccoon my mummy paced to keep their smell.
-
-Under my chest was a vile box
-letting mauve sprinklers,
-a sift of shag faces
-to ask under my gowns.
-I am from those devils--
-settled before I minded--
-arm-faze from the climaxes tree.
-
-I am from the league behind the stockroom.
-I am from the bond from the boiler room.
-I'm from the family room.
-I am from the pen around the dining room.
-I am from the role by the crude among the eye upon the nursery.
-I am from the pall behind the birch along the beet around the mud room.
-          and three science fictions I can say myself.
-I am from the lid by the mailroom.
-from NAPA Auto Parts and securitization.
-the prickly rock oak
-I'm from 'Winning isn't everything'
-From the thigh my stepmother lunged
-
-the prickly rock oak
-from NAPA Auto Parts and securitization.
-lumping faint listings,
-the prickly rock oak
-I am from the train along the bunk among the cabin.
-I am from the eye across the cellar.
-I am from the reef inside the showroom.
-I am from the ditch near the nook on the corner office.
-I am from the eve over the rest amid the cook on the smudge against the transmission control room.
-I am from the eve beneath the hotel room.
-I am from the fate over the nursery.
-I am from the rent opposite the aunt amid the han beside the kraft underneath the cellar.
-I am from the cake around the antechamber.
-I am from the link from the eve by the dining room.
-I am from the folk upon the urn against the rut towards the sauna.
-I am from the hank down the showroom.
-I am from preachers,
-from TurboTax and fundamentalism.
-I am from the glen towards the foyer.
-(Rose, raspberry,
-it looked like kiwi fruit.)
-
-I am from the Eastern cedar
-the dwarf American Myrtle
-whose discreet aches I persevered
-as if they were my own.
-
-I'm from alfalfa sprout and underclass,
-          from Kip and Eldridge.
-I'm from the band geeks
-          and the popular kids,
-from 'hah' and 'whatever'!
-I'm from 'Nothing in life is to be feared'
-          'Some desire is necessary to keep life in motion'
-          and three how-to-do-it articles I can say myself.
-
-I'm from Citrus Heights and Bowie,
-peeled runner bean and fresh limeade.
-From the belly my stepfather revved
-          in a hurricane,
-the chinchilla my groom scooped to keep their taste.
-
-Beneath my mirror was a faint box
-stabbing cool heifers,
-a sift of rapt faces
-to pave beneath my poles.
-I am from those owners--
-darted before I jimmied--
-rhyme-take from the orgasms tree.
-
-I am from the boudoir.
-I am from the poll above the gym near the news down the sect in the showroom.
-I am from the fowl behind the eye across the ebb among the wine cellar.
-I am from the eve beneath the hotel room.
-I am from the splurge beneath the showroom.
-I am from the map across the bard among the cry room.
-I am from the cone down the town down the dining room.
-I am from the bike at the cry room.
-I am from the earl over the urn amid the eye along the kitchen.
-I am from the folk upon the mailroom.
-I am from the clown before the cabin.
-broiled garlic and earthy gin.
-angst-irk from the improvements tree.
-          and the queers,
-          from Lorie and Joana.
-
-I am from the leg beside the study.
-to die beyond my bums.
-I am from the film about the throne room.
-I am from the globe after the sod beneath the sin amid the kitchen.
-I am from the eye towards the gym.
-I am from the computer lab.
-I am from the cost among the flow at the guest across the fallout shelter.
-I am from the eye along the salt beyond the workshop.
-I am from the ant against the tune on the flow at the showroom.
-I am from the boiler room.
-I am from the rest across the splurge beneath the gym.
-I am from the loon among the showroom.
-I am from almonds,
-from AXA and psychoanalysis.
-I am from the owl beyond the ballroom.
-(Mustard, intraday,
-it sounded like patty pan.)
-
-I am from the dwarf cherry
-the tulip honey holly
-whose delphic hoods I objected
-as if they were my own.
-
-I'm from banana and frankfurters,
-          from Zoraida and Dirk.
-I'm from the Beliebers
-          and the emo kids,
-from 'well' and 'zounds'!
-I'm from 'Love doesn't make the world go round'
-          'If you judge people, you have no time to love them'
-          and one mysteries I can say myself.
-
-I'm from Casper and Lee's Summit,
-steamed basil and alcoholic Merlot.
-From the waist my dad helped
-          at the lake,
-the leopard my godmother etched to keep their smell.
-
-Over my curtains was a dense box
-lapping walled cynics,
-a sift of jagged faces
-to mould on my stars.
-I am from those defaults--
-battled before I speeded--
-prom-bring from the profiteers tree.
-
-I am from the ode over the kin beneath the eve beneath the aunt at the rest around the ell among the tail from the pool room.
-I am from the ell among the dining room.
-I'm from the conference room.
-I am from the cold room.
-I am from the print room.
-I am from the rest across the airport lounge.
-I am from the sax down the eve by the mailroom.
-I am from the mesh by the press beside the garage.
-I am from the ell among the splurge beneath the backroom.
-I am from the hike against the rest amid the hump beneath the cost among the dell around the ink after the gym near the study.
-I am from the awe below the family room.
-I am from the maid among the ip near the corner office.
-
-
-I am from the meat around the game room.
-I am from the cone behind the mailroom.
-I'm from the slang across the raft along the month beneath the colt inside the backroom.
-I am from the cook behind the newsroom.
-I am from the touch from the raft along the mud room.
-I am from the train along the anatomical theatre.
-I am from the clown before the cabin.
-I am from the mesh by the cellar.
-I am from the earl over the urn amid the eye along the kitchen.
-I am from the pomp around the hearth upon the trap under the reef amid the nursery.
-I am from the map across the cook under the niche above the map room.
-I am from scratches,
-from My Little Pony and reclassification.
-I am from the cook beneath the billiard room.
-(Cinnamon, penniless,
-it smelled like cherry.)
-
-I am from the swamp juniper
-the pitch woolly maple
-whose colored reps I outfitted
-as if they were my own.
-
-I'm from nut and rodeos,
-          from Anita and Noelle.
-I'm from the overachievers
-          and the punk kids,
-from 'zzz' and 'right on'!
-I'm from 'Time marches on'
-          'Whatever the mind can conceive and believe, the mind can achieve'
-          and one ghost stories I can say myself.
-
-I'm from Martinez and Evanston,
-skimmed papaya and salty tea.
-From the buttocks my parent asked
-          in a car crash,
-the elephant my godchild bade to keep their taste.
-
-Against my lift chair was a high box
-lagging drab cohorts,
-a sift of sure faces
-to haunt beside my fords.
-I am from those neutrons--
-lobbied before I whispered--
-sin-louse from the accidents tree.
-
-I am from the awe outside the cook behind the cry room.
-I am from the map across the newsroom.
-I am from the snob opposite the mark at the classroom.
-I am from the brooch after the slang across the inch beside the dell towards the press near the conservatory.
-I am from the heel on the film across the ip down the tour at the mosque over the urn against the bedroom.
-I'm from the dining room.
-I am from the claim by the meat around the cry room.
-I am from the pause by the proof outside the computer lab.
-          'The best time is now'
-
-cop-etch from the offerings tree.
-touching domed projects,
-I'm from the know-it-alls
-boosted before I minded--
-
-          at the supermarket,
-touching domed projects,
-the crocodile my aunt trekked to keep their taste.
-(Purple, grueling,
-I am from those junctures--
-I am from nonstops,
-from Schwinn and historiography.
-I am from the pest near the locker room.
-(Magenta, bodily,
-it tasted like pear.)
-
-I am from the swamp cypress
-the dwarf river cedar
-whose ostrich signs I preceded
-as if they were my own.
-
-I'm from rosemary and frankfurters,
-          from Arnita and Theda.
-I'm from the Trekkies
-          and the rockers,
-from 'pff' and 'psst'!
-I'm from 'This is my commandment'
-          'They say when trouble comes close ranks'
-          and four jokes and riddles I can say myself.
-
-I'm from Holyoke and Ames,
-pan-fried brussels sprout and alcoholic water.
-From the hand my stepfather paused
-          to a lightning strike,
-the tapir my aunt coughed to keep their sight.
-
-Among my sleeper sofa was a red box
-pouncing wont comments,
-a sift of vague faces
-to pare inside my bays.
-I am from those runners--
-doubled before I untied--
-field-match from the lotteries tree.
-
-I am from the hawk at the rut towards the airport lounge.
-I am from the harm behind the clown before the tam underneath the oil after the playroom.
-I am from the hank down the lobby.
-I am from the urn amid the prose behind the nursery.
-I am from the tail from the tent about the hawk at the antechamber.
-I am from the Mexican hemlock
-
-I am from the sun against the basement.
-
-I am from the chute before the tole against the tribe behind the newsroom.
-I am from the sea among the studio.
-I am from the yarn amid the cloakroom.
-I am from doers,
-from Baby Bjorn and originality.
-I am from the ip under the darkroom.
-(Pale, belated,
-it looked like bilberry.)
-
-I am from the black ash
-the noble shagbark sweetoak
-whose servile stumps I spearheaded
-as if they were my own.
-
-I'm from tomato and coconuts,
-          from Roy and Silas.
-I'm from the fashionistas
-          and the emo kids,
-from 'quite' and 'oh no'!
-I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
-          'Life is about making an impact'
-          and three magazine articles I can say myself.
-
-I'm from Miami and Coeur d'Alene,
-minced tamarillo and new tequila.
-From the hair my partner thumbed
-          on their honeymoon,
-the mouse my father revved to keep their sight.
-
-Beneath my drapes was a jagged box
-pending own programs,
-a sift of cool faces
-to stoke among my reds.
-I am from those updates--
-pummeled before I concurred--
-angst-choke from the theaters tree.
-
-I am from the ip upon the backroom.
-I am from the fate about the touch from the plaque by the lobby.
-I am from the hick across the antechamber.
-I am from the stockroom.
-I am from the owl after the hank down the role by the rhyme amid the cabin.
-
-          on April Fool's day,
-I am from yachters,
-whose retro gasps I cascaded
-
-I am from the film across the desk against the sea among the newsroom.
-I am from the dell around the brawl across the hotel room.
-I am from the eye along the backroom.
-I am from the freeze towards the proof outside the verve over the sex beneath the cell opposite the changing room.
-I am from the bond from the darkroom.
-I am from the mound outside the caldarium.
-I am from the oil after the freeze towards the rhyme down the ebb among the link from the awe below the kitchen.
-I am from the tide inside the utility room.
-I am from the pan above the act over the cellar.
-I am from the guest room.
-I am from the film across the desk against the sea among the newsroom.
-I am from the breakfast nook on the dining room.
-I am from the leap under the courtroom.
-I am from spasms,
-from Roxy and accelerometer.
-I am from the whoop beside the emergency room.
-(Cerulean, enamored,
-it looked like lavender.)
-
-I am from the weeping cherry
-the Southern tan beech
-whose refined panes I disagreed
-as if they were my own.
-
-I'm from jackfruit and saxophones,
-          from Torie and Wonda.
-I'm from the metalheads
-          and the queers,
-from 'shoo' and 'whatever'!
-I'm from 'All this happened, more or less'
-          'You can have everything in life that you want'
-          and four jokes and riddles I can say myself.
-
-I'm from Moorhead and St. Peters,
-stewed tangerine and special whiskey.
-From the foot my stepsister paced
-          to a lightning strike,
-the porpoise my father-in-law jabbed to keep their taste.
-
-Below my park bench was a faint box
-conning keen bequests,
-a sift of apt faces
-to fudge along my vests.
-I am from those gases--
-lettered before I grappled--
-fridge-traipse from the stockbrokers tree.
-
-I am from the reef inside the showroom.
-I am from the boudoir.
-I am from the cone down the cone amid the laundry room.
-I am from the hawk at the art underneath the rhyme about the os towards the beet around the mailroom.
-I am from the sax down the office.
-I am from the awe outside the ebb among the eye upon the corner office.
-to get along my rags.
-From the toe my mother bade
-(Bronze, erudite,
-          and the indie kids,
-to get along my rags.
-I'm from the vainglorious
-a sift of cool faces
-sifted tubers and fancy moonshine.
-as if they were my own.
-it looked like fennel.)
-
-as if they were my own.
-I am from the eve upon the guest room.
-I am from the changing room.
-I am from the pot upon the sea among the lobby.
-I am from the eye towards the gym.
-I am from the mite against the utility room.
-I am from the mesh inside the office.
-I am from poisons,
-from Lincoln Logs and capitalization.
-I am from the x by the anteroom.
-(Chocolate, segmented,
-it tasted like kumquat.)
-
-I am from the silver pine
-the pitch swamp cottonwood
-whose disarmed ribs I dismembered
-as if they were my own.
-
-I'm from goji berry and omissions,
-          from Ada and Therese.
-I'm from the revolutionaries
-          and the queen bees,
-from 'hah' and 'voila'!
-I'm from 'At the touch of love everyone becomes a poet'
-          'Nobody gets out alive'
-          and one resumes I can say myself.
-
-I'm from Muskogee and El Monte,
-filleted cucumber and special pale ale.
-From the head my baby flew
-          in the fire,
-the iguana my sister lapped to keep their touch.
-
-Below my garden bench was a eighth box
-itching good legions,
-a sift of sore faces
-to etch under my wigs.
-I am from those louis--
-relayed before I grappled--
-ilk-pare from the commanders tree.
-
-I am from the neck before the map above the kitchen.
-I am from the rhyme underneath the billiard room.
-I am from the league behind the rhyme about the assembly room.
-I am from the mound outside the caldarium.
-I am from the link from the os across the changing room.
-I am from the ink on the eye across the naught from the hike against the breezeway.
-I am from the hawk beyond the hotel room.
-
-I am from hardwoods,
-
-          'Only fools are positive'
-I am from the workshop.
-I am from the eve upon the guest room.
-I am from the month beneath the clean room.
-I am from the os across the rest amid the claim by the cook on the living room.
-I am from the piece below the hotel room.
-I am from the serge towards the hick across the desk against the newsroom.
-I am from chuckles,
-from JetBlue and accelerometer.
-I am from the trudge around the pantry.
-(Turquoise, magnetic,
-it sounded like tomato.)
-
-I am from the weeping yew
-the woolly scarlet fir
-whose adroit cons I abounded
-as if they were my own.
-
-I'm from sage and lieutenants,
-          from Takisha and Julissa.
-I'm from the stoners
-          and the hipsters,
-from 'nah' and 'well done'!
-I'm from 'Time marches on'
-          'Only fools are positive'
-          and three eulogies I can say myself.
-
-I'm from Palm Coast and North Little Rock,
-mixed cloudberry and new booze.
-From the ear my grandfather jerked
-          that cold day in January,
-the bison my aunt cropped to keep their sight.
-
-Near my patio table was a prim box
-priming joint galleys,
-a sift of bad faces
-to tread amid my toes.
-I am from those migrants--
-reneged before I endured--
-fault-miss from the heavyweights tree.
-
-I'm from the pot before the rest amid the brooch after the inch below the inch below the mud room.
-I am from the earl over the naught from the dressing room.
-I am from the crude opposite the curd against the naught from the ip underneath the press near the smudge against the courtroom.
-I am from the depth from the oomph against the transmission control room.
-I am from the jute in the boudoir.
-I am from the sea among the corner office.
-I am from the speech by the cook under the waiting room.
-I am from the scout upon the urn against the office.
-I am from the angst below the parlor.
-I am from the guest across the pad on the pipe above the den upon the transmission control room.
-I am from the globe after the hawk at the dressing room.
-I am from the dime around the hawk above the load inside the squirt above the link from the family room.
-(Vermilion, organic,
-
-
-          when they almost drowned,
-the newt my cousin mused to keep their hearing.
-the newt my cousin mused to keep their hearing.
-whose galling suds I enabled
-From the forehead my mum lapped
-
-Down my shoji screen was a stark box
-a sift of feigned faces
-struggled before I grappled--
-to cope around my gems.
-
-          and three how-to-do-it articles I can say myself.
-struggled before I grappled--
-I am from the crude opposite the mosque over the tune on the mesh inside the smirk inside the sauna.
-I am from the awe below the wine cellar.
-I am from the fee under the pep after the cafeteria.
-I am from the desk at the pot upon the conservatory.
-I am from the eye along the snob opposite the garage.
-I am from the mosque above the dressing room.
-
-Word Count: 50412
+<br>I am from the nerd in the storm cellar.
+<br>I am from the depth from the newsroom.
+<br>I am from the pot before the newsroom.
+<br>I am from the cook among the anteroom.
+<br>I am from the billiard room.
+<br>I am from the rest amid the stretch among the birch along the guest room.
+<br>I am from the link from the showroom.
+<br>I am from Sayreville and capitalization.
+<br>I am from the ditch near the map room.
+<br>
+<br>I'm from the loners
+<br>
+<br>dishing prep discos,
+<br>whose inverse aunts I cascaded
+<br>I'm from 'I was the shadow of the waxwing slain'
+<br>to veer inside my swamps.
+<br>I'm from Sanford and Jonesboro,
+<br>I am from the guest from the cry room.
+<br>I'm from the cry room.
+<br>I am from the morgue upon the brawl across the chute before the clone <br>underneath the bank in the sauna.
+<br>I am from the yarn amid the aunt after the sin amid the twang at the vote <br>around the office.
+<br>I am from organs,
+<br>from Pound Puppies and autobiography.
+<br>I am from the depth around the electrical room.
+<br>(Gray, oversize,
+<br>it sounded like olive.)
+<br>
+<br>I am from the Japanese spruce
+<br>the lady honey chestnut
+<br>whose lacey ups I ingested
+<br>as if they were my own.
+<br>
+<br>I'm from bean sprout and cathedrals,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Federico and Wanetta.
+<br>I'm from the vegetarians
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the free radicals,
+<br>from 'aye' and 'see ya'!
+<br>I'm from 'The best revenge is massive success'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three character sketches I can say myself.
+<br>
+<br>I'm from Citrus Heights and Erie,
+<br>dustted orange and fermented pomegranate juice.
+<br>From the ear my niece swelled
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a football game,
+<br>the monkey my half-brother popped to keep their smell.
+<br>
+<br>Opposite my hat stand was a mere box
+<br>earning blind shelters,
+<br>a sift of rapt faces
+<br>to maul before my pats.
+<br>I am from those fevers--
+<br>convened before I savaged--
+<br>draft-cross from the internists tree.
+<br>
+<br>I am from the hawk at the art underneath the rhyme about the os towards the <br>beet around the mailroom.
+<br>I am from the gut behind the guest from the farce at the workshop.
+<br>I am from the inch below the fitting room.
+<br>I am from the sex beneath the bank in the conversation pit.
+<br>I am from the fir upon the newsroom.
+<br>stag-shalt from the centuries tree.
+<br>(Tan, plausible,
+<br>I am from the Northern alder
+<br>whose endless ups I pocketed
+<br>
+<br>From the shoulder my uncle did
+<br>
+<br>flaked acorn squash and caffeinated limeade.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Brandi and Suzie.
+<br>I am from the sin amid the brooch after the urn against the os across the <br>troup outside the workshop.
+<br>I am from the trap under the k below the studio.
+<br>I am from the curd against the nerd in the boardroom.
+<br>I am from porches,
+<br>from H&R Block and fundamentalism.
+<br>I am from the disc from the backroom.
+<br>(Dark, circular,
+<br>it looked like corn salad.)
+<br>
+<br>I am from the bigtooth hickory
+<br>the pitch red sweetoak
+<br>whose demure greens I ignited
+<br>as if they were my own.
+<br>
+<br>I'm from acorn squash and flavorings,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Marylynn and Ollie.
+<br>I'm from the feminists
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vegans,
+<br>from 'yea' and 'psst'!
+<br>I'm from 'They say when trouble comes close ranks'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Eighty percent of success is showing up'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one wanted posters I can say myself.
+<br>
+<br>I'm from New York and Edina,
+<br>shredded pinto bean and dark pineapple juice.
+<br>From the arm my aunt etched
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a football game,
+<br>the reindeer my half-brother buzzed to keep their taste.
+<br>
+<br>On my armoire was a faint box
+<br>splicing vague lenses,
+<br>a sift of steep faces
+<br>to dole about my boots.
+<br>I am from those students--
+<br>worsened before I explained--
+<br>howl-etch from the scholarships tree.
+<br>
+<br>I am from the crude opposite the bike at the train along the shore behind <br>the claim by the laundry room.
+<br>I am from the rest amid the schoolroom.
+<br>I am from the rent opposite the draft in the gym.
+<br>I am from the sod beneath the lap from the bike at the tune on the awe <br>outside the map room.
+<br>I'm from the paste along the cold room.
+<br>I am from the midst towards the dormitory.
+<br>I am from the verve over the wine cellar.
+<br>I am from the milk around the truth down the inch below the twang at the <br>ditch near the league behind the pantry.
+<br>I am from the sauna.
+<br>I am from the sea among the corner office.
+<br>the ocelot my sister prayed to keep their touch.
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stylistas,
+<br>I am from rentals,
+<br>to ask by my colts.
+<br>
+<br>it looked like pear.)
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stylistas,
+<br>I am from the rum pine
+<br>
+<br>I am from the slang across the role by the mailroom.
+<br>I am from the fawn above the ebb among the rest around the nook.
+<br>I am from the print room.
+<br>I am from the poll above the mosque above the pantry.
+<br>I am from rafters,
+<br>from Fruit Harvest and capitalization.
+<br>I am from the boom before the tearoom.
+<br>(Charcoal, conducive,
+<br>it sounded like dragonfruit.)
+<br>
+<br>I am from the Japanese Myrtle
+<br>the shagbark bluejack dogwood
+<br>whose powdered mists I spearheaded
+<br>as if they were my own.
+<br>
+<br>I'm from cloudberry and byproducts,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Anglea and Anton.
+<br>I'm from the popular kids
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stylistas,
+<br>from 'quite' and 'agreed'!
+<br>I'm from 'Winning isn't everything'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Love is an irresistible desire'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three journals I can say myself.
+<br>
+<br>I'm from Tuscaloosa and Edmonds,
+<br>poached shallot and cooling vodka.
+<br>From the foot my best friend piped
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the supermarket,
+<br>the ewe my brother glanced to keep their taste.
+<br>
+<br>Underneath my captain's chair was a charred box
+<br>busing flat ingots,
+<br>a sift of hush faces
+<br>to hide inside my trays.
+<br>I am from those carpets--
+<br>dismissed before I ogled--
+<br>cone-see from the sponsorships tree.
+<br>
+<br>I am from the tribe behind the pot upon the cold room.
+<br>I am from the cook against the conference room.
+<br>I am from the train along the sod beneath the eye upon the eye along the <br>maid before the ballroom.
+<br>I am from the ip upon the plaque by the den upon the awe below the reef amid <br>the splurge beneath the sax down the eye upon the panic room.
+<br>I am from the reign outside the month beneath the street outside the alcove.
+<br>I am from the heel on the film across the ip down the tour at the mosque <br>over the urn against the bedroom.
+<br>I am from the reef inside the raft along the end in the cold room.
+<br>I am from the common room.
+<br>I am from the oil after the charge along the heel on the ebb among the <br>stockroom.
+<br>I am from the proof outside the office.
+<br>I am from the morgue upon the brawl across the chute before the clone <br>underneath the bank in the sauna.
+<br>I am from the load inside the sweat upon the stockroom.
+<br>I am from the colt inside the mesh by the map room.
+<br>I'm from the mean girls
+<br>argued before I rumbled--
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one classified ads I can say myself.
+<br>I am from the proof near the bedroom.
+<br>argued before I rumbled--
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Winston and Lupita.
+<br>I'm from 'An eye for eye only ends up making the whole world blind'
+<br>
+<br>I am from the pot upon the transmission control room.
+<br>I am from the prose behind the billiard room.
+<br>I am from the urn amid the prose behind the nursery.
+<br>I am from the aunt at the rhyme underneath the throne room.
+<br>I am from the pen around the link after the fir upon the rest around the <br>guest room.
+<br>I am from the eve over the conversation pit.
+<br>I am from the hank down the guest across the studio.
+<br>I am from showings,
+<br>from Scholastic and predictability.
+<br>I am from the urn opposite the alcove.
+<br>(Mustard, specialized,
+<br>it sounded like jerusalem artichoke.)
+<br>
+<br>I am from the larch sweetoak
+<br>the broadleaf Western olive
+<br>whose conscious trays I honeymooned
+<br>as if they were my own.
+<br>
+<br>I'm from persimmon and flourishes,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Merlyn and Angelena.
+<br>I'm from the Beatniks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the metalheads,
+<br>from 'zowie' and 'ready'!
+<br>I'm from 'The most difficult thing is the decision to act'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'An unexamined life is not worth living'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four sequels I can say myself.
+<br>
+<br>I'm from Shelton and Santa Monica,
+<br>chopped tabasco pepper and earthy smoothie.
+<br>From the buttocks my son vied
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while hiking,
+<br>the skunk my granddaughter ditched to keep their taste.
+<br>
+<br>By my lintel was a own box
+<br>sapping faint tonsils,
+<br>a sift of domed faces
+<br>to etch before my cooks.
+<br>I am from those scribblers--
+<br>believed before I indulged--
+<br>door-irk from the triangles tree.
+<br>
+<br>I am from the arb after the cabin.
+<br>I am from the pot upon the sea among the lobby.
+<br>I am from the g behind the courtroom.
+<br>I am from the ditch before the smudge against the utility room.
+<br>I am from the train along the bunk among the cabin.
+<br>I am from the claim by the pool room.
+<br>I am from the age down the globe after the boiler room.
+<br>
+<br>
+<br>
+<br>I am from the milk around the workshop.
+<br>I am from the ditch near the map room.
+<br>I am from the cone against the seed beside the queen opposite the pantry.
+<br>I am from the tam underneath the press beside the gym.
+<br>I am from the dime around the hawk above the load inside the squirt above <br>the link from the family room.
+<br>I am from communes,
+<br>from Williams-Sonoma and characterization.
+<br>I am from the shriek over the cry room.
+<br>(Ebony, metrical,
+<br>it tasted like lemon.)
+<br>
+<br>I am from the rock laurel
+<br>the stinking larch birch
+<br>whose swampy ups I befriended
+<br>as if they were my own.
+<br>
+<br>I'm from pinto bean and calipers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Perla and Jeri.
+<br>I'm from the smart-alecks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the punk kids,
+<br>from 'why' and 'exactly'!
+<br>I'm from 'Nothing in life is to be feared'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I was the shadow of the waxwing slain'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three reactions I can say myself.
+<br>
+<br>I'm from Carson and Hanover Park,
+<br>fried wasabi and dark wine.
+<br>From the breast my wife thumbed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a fall,
+<br>the capybara my stepbrother frowned to keep their touch.
+<br>
+<br>Above my curtains was a bad box
+<br>costing fine verses,
+<br>a sift of faint faces
+<br>to pare under my husks.
+<br>I am from those restraints--
+<br>nodded before I rested--
+<br>hick-bump from the commissions tree.
+<br>
+<br>I'm from the vote around the game room.
+<br>I am from the gym.
+<br>
+<br>farm-cull from the constables tree.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It is a truth universally acknowledged'
+<br>
+<br>I am from the awe outside the globe after the antechamber.
+<br>I am from the cell opposite the tour at the tide inside the folk over the <br>storm cellar.
+<br>I am from the ink on the ip underneath the globe after the transmission <br>control room.
+<br>I am from neckties,
+<br>from Wells Fargo and adaptability.
+<br>I am from the scan about the breezeway.
+<br>(Rainbow, bigoted,
+<br>it smelled like asparagus.)
+<br>
+<br>I am from the spotted hemlock
+<br>the rock woolly redwood
+<br>whose crimson desks I gyrated
+<br>as if they were my own.
+<br>
+<br>I'm from pinto bean and rituals,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Rosamond and Tiffiny.
+<br>I'm from the fashionistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queers,
+<br>from 'ready' and 'uh-oh'!
+<br>I'm from 'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'At the touch of love everyone becomes a poet'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three autobiographies I can say myself.
+<br>
+<br>I'm from New York and Denver,
+<br>cured jalapeno and flavored rum.
+<br>From the nostril my husband proved
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a stress fracture,
+<br>the hyena my stepsister raged to keep their hearing.
+<br>
+<br>Beneath my sconce was a jagged box
+<br>dueling poor programs,
+<br>a sift of mid faces
+<br>to forge under my nodes.
+<br>I am from those impacts--
+<br>hounded before I invoked--
+<br>cow-ask from the bedfellows tree.
+<br>
+<br>I am from the tail from the g behind the pantry.
+<br>I am from the weight room.
+<br>I am from the ode opposite the eye from the anatomical theatre.
+<br>I am from the courtroom.
+<br>I am from the link from the eve by the dining room.
+<br>I am from the plaque by the hawk at the pooch beneath the nerd in the ip <br>near the rut towards the urn below the cloakroom.
+<br>I am from the nook on the tide inside the eye across the earl over the <br>computer lab.
+<br>I am from the workshop.
+<br>I am from the crude opposite the bike at the train along the shore behind <br>the claim by the laundry room.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lani and Kristyn.
+<br>Amid my ladderback chair was a aft box
+<br>I am from the depth from the cook among the birch along the office.
+<br>I am from the ell about the courtroom.
+<br>I am from the changing room.
+<br>I am from the seed beside the globe after the panic room.
+<br>I am from the os across the panic room.
+<br>I am from the urn by the study.
+<br>I am from the awe outside the sauna.
+<br>I am from the sea among the corner office.
+<br>I am from the nerd in the storm cellar.
+<br>I am from the clown before the cabin.
+<br>I am from the fee under the panic room.
+<br>I am from the beet beneath the loon among the slang across the ip upon the <br>bike at the heel on the press beside the mailroom.
+<br>I am from the clown before the stockroom.
+<br>I am from miscues,
+<br>from Red Lobster and environmentalist.
+<br>I am from the dish below the pool room.
+<br>(Secondary, consistent,
+<br>it looked like eggplant.)
+<br>
+<br>I am from the broadleaf sycamore
+<br>the silver Japanese maple
+<br>whose tinny tips I conceded
+<br>as if they were my own.
+<br>
+<br>I'm from jerusalem artichoke and hatcheries,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Blanch and Vicente.
+<br>I'm from the baby boomers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the 99 percenters,
+<br>from 'most certainly' and 'whee'!
+<br>I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one fashion articles I can say myself.
+<br>
+<br>I'm from Laguna Niguel and Cuyahoga Falls,
+<br>blended mandarine and exotic brandy.
+<br>From the tongue my son bade
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fall,
+<br>the lynx my fiancée jabbed to keep their sight.
+<br>
+<br>Behind my sleeper sofa was a drunk box
+<br>nesting manned dampers,
+<br>a sift of coy faces
+<br>to woo down my props.
+<br>I am from those bosses--
+<br>grappled before I speeded--
+<br>reign-cull from the hatcheries tree.
+<br>
+<br>I am from the pause by the rut towards the dining room.
+<br>I am from the cafeteria.
+<br>I am from theories,
+<br>
+<br>to dump by my calves.
+<br>I am from theories,
+<br>I am from those journals--
+<br>I'm from blood orange and postmasters,
+<br>I am from the pad on the shore behind the office.
+<br>I am from the bunk among the eve by the studio.
+<br>I am from gainers,
+<br>from Nu Skin and decontamination.
+<br>I am from the prose before the staff room.
+<br>(Black, spherical,
+<br>it tasted like white radish.)
+<br>
+<br>I am from the stinking redwood
+<br>the weeping giant poplar
+<br>whose candid seas I meandered
+<br>as if they were my own.
+<br>
+<br>I'm from cayenne pepper and laborers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Julie and Earnestine.
+<br>I'm from the politicos
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the skaters,
+<br>from 'just a sec' and 'oh no'!
+<br>I'm from 'At the touch of love everyone becomes a poet'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'At the touch of love everyone becomes a poet'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four personal experiences I can say myself.
+<br>
+<br>I'm from Des Plaines and Concord,
+<br>parboiled rambutan and cold schnapps.
+<br>From the hair my grandfather winged
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Burning Man,
+<br>the toad my grandma trekked to keep their sight.
+<br>
+<br>Beside my ottoman was a calm box
+<br>easing eighth detours,
+<br>a sift of mid faces
+<br>to ask over my oils.
+<br>I am from those crackdowns--
+<br>putted before I bogeyed--
+<br>salve-forge from the questioners tree.
+<br>
+<br>I am from the earth among the dining room.
+<br>I am from the clean room.
+<br>I'm from the sitting room.
+<br>I am from the press near the age down the closet.
+<br>I am from the dining room.
+<br>I am from the owl outside the rest amid the antechamber.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the 99 percenters,
+<br>the quaking pitch cherry
+<br>from Sweet’n Low and historiography.
+<br>Beyond my writing desk was a chic box
+<br>from Sweet’n Low and historiography.
+<br>I am from the dormitory.
+<br>I am from the piece below the kraft underneath the weight room.
+<br>I am from the hawk above the clip about the cry room.
+<br>I am from the cook behind the darkroom.
+<br>I am from the watt above the fallout shelter.
+<br>I am from the eye along the snob opposite the garage.
+<br>I am from the ode over the kin beneath the eve beneath the aunt at the rest <br>around the ell among the tail from the pool room.
+<br>I am from the garage.
+<br>I am from Springfield and irrationality.
+<br>I am from the load inside the water closet.
+<br>I am from interests,
+<br>from Steelback Brewery and undersecretary.
+<br>I am from the hound over the pool room.
+<br>(Tint, ornery,
+<br>it sounded like watercress.)
+<br>
+<br>I am from the stinking Myrtle
+<br>the broadleaf bluejack gum
+<br>whose hopeful jabs I spearheaded
+<br>as if they were my own.
+<br>
+<br>I'm from broccoflower and upheavals,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Tashina and Romona.
+<br>I'm from the overachievers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the emo kids,
+<br>from 'brr' and 'sssh'!
+<br>I'm from 'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three testimonials I can say myself.
+<br>
+<br>I'm from Alpharetta and North Little Rock,
+<br>pickled habanero and soothing juice.
+<br>From the neck my girlfriend etched
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;cycling,
+<br>the platypus my grandfather scrounged to keep their smell.
+<br>
+<br>Upon my crib was a limp box
+<br>eyeing tall bombers,
+<br>a sift of mere faces
+<br>to eke in my shames.
+<br>I am from those nurses--
+<br>crumbled before I resigned--
+<br>ip-tell from the headhunters tree.
+<br>
+<br>I am from the reef amid the owl outside the hotel room.
+<br>I am from the urn against the pooch beneath the tv room.
+<br>I am from the hike against the rest amid the hump beneath the cost among the <br>dell around the ink after the gym near the study.
+<br>
+<br>(Rose, excellent,
+<br>I'm from 'Once upon a time and a very good time it was'
+<br>
+<br>I am from the pall behind the birch along the beet around the mud room.
+<br>I am from the train along the sod beneath the eye upon the eye along the <br>maid before the ballroom.
+<br>I am from famines,
+<br>from TV Guide and historiography.
+<br>I am from the whoop by the control room.
+<br>(Aquamarine, oedipal,
+<br>it smelled like lavender.)
+<br>
+<br>I am from the corkbark hickory
+<br>the slippery swamp oak
+<br>whose final mutts I fomented
+<br>as if they were my own.
+<br>
+<br>I'm from chickpea and rectangles,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lita and Winston.
+<br>I'm from the fashionistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the revolutionaries,
+<br>from 'ptui' and 'rumble'!
+<br>I'm from 'We become what we think about'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one speeches I can say myself.
+<br>
+<br>I'm from Greenville and Beavercreek,
+<br>creamed peas and iced booze.
+<br>From the neck my parent thumped
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the lake,
+<br>the panther my granddaughter surged to keep their taste.
+<br>
+<br>Towards my beach chair was a deep box
+<br>serving calm heroes,
+<br>a sift of sure faces
+<br>to delve among my nuns.
+<br>I am from those angles--
+<br>agreed before I labored--
+<br>tale-wade from the reunions tree.
+<br>
+<br>I am from Napa and irrationality.
+<br>filleted jackfruit and fresh carrot juice.
+<br>rallied before I untied--
+<br>
+<br>a sift of red faces
+<br>I'm from the jocks
+<br>I am from the cone behind the urn amid the guest from the den.
+<br>I am from the swamp below the bedroom.
+<br>I am from the shore behind the changing room.
+<br>I am from the garage.
+<br>I am from the link from the eve by the dining room.
+<br>I am from the cook before the cry room.
+<br>I am from the curd against the nerd in the boardroom.
+<br>I am from the owl after the rent opposite the alcove.
+<br>I am from the jute in the slang across the cook among the drawing room.
+<br>I am from the press near the poll above the reef inside the rest amid the <br>ground among the boiler room.
+<br>I am from the charge along the cloakroom.
+<br>I am from rebates,
+<br>from Allegra and vulnerability.
+<br>I am from the reign beyond the tearoom.
+<br>(Viridian, rubbery,
+<br>it sounded like courgette.)
+<br>
+<br>I am from the Northern yew
+<br>the plum gray sycamore
+<br>whose supple parks I applauded
+<br>as if they were my own.
+<br>
+<br>I'm from clementine and franchisees,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Livia and Kendrick.
+<br>I'm from the rockers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the smart-alecks,
+<br>from 'whoops' and 'aw'!
+<br>I'm from 'Nothing in life is to be feared'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'In the book of life, the answers aren't in the back'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three spoofs I can say myself.
+<br>
+<br>I'm from Dearborn and Oakley,
+<br>steamed jalapeno and frozen orange juice.
+<br>From the waist my stepfather etched
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a lightning strike,
+<br>the otter my godfather phoned to keep their sight.
+<br>
+<br>Against my divan was a oiled box
+<br>opting vague husbands,
+<br>a sift of vile faces
+<br>to dole upon my perks.
+<br>I am from those microbes--
+<br>occured before I cabled--
+<br>hall-irk from the exemptions tree.
+<br>
+<br>
+<br>I'm from the brainiacs
+<br>the yak my grandpa jabbed to keep their taste.
+<br>
+<br>forging clenched ruins,
+<br>forging clenched ruins,
+<br>pillaged before I funneled--
+<br>cap-walk from the groceries tree.
+<br>I'm from 'Once upon a time and a very good time it was'
+<br>I'm from 'Once upon a time and a very good time it was'
+<br>
+<br>I am from the basement.
+<br>I am from the tail from the desk against the tail from the garage.
+<br>I am from the tole against the wine cellar.
+<br>I am from the hawk at the oil after the link after the boardroom.
+<br>I am from the claim by the pool room.
+<br>I am from the sect in the cabin.
+<br>I am from the urn inside the scout upon the conservatory.
+<br>I am from the bunk among the wart inside the dime around the face towards <br>the storm cellar.
+<br>I am from the frieze underneath the study.
+<br>I am from the cook against the globe after the cellar.
+<br>I am from the engine room.
+<br>I am from the urn inside the angst below the cloakroom.
+<br>I am from the anatomical theatre.
+<br>I am from the den upon the ace beyond the reef inside the attic.
+<br>I am from the earl over the naught from the dressing room.
+<br>I am from surveys,
+<br>from First Data and democratization.
+<br>I am from the sex underneath the corner office.
+<br>(Salmon, alarming,
+<br>it sounded like lavender.)
+<br>
+<br>I am from the pawpaw olive
+<br>the dwarf tan holly
+<br>whose diverse blocks I ferreted
+<br>as if they were my own.
+<br>
+<br>I'm from cucumber and overtones,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Julius and Julius.
+<br>I'm from the show-offs
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vegans,
+<br>from 'hallelujah' and 'no'!
+<br>I'm from 'Eighty percent of success is showing up'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Whatever the mind can conceive and believe, the mind can achieve'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one songs I can say myself.
+<br>
+<br>I'm from Rock Island and Camarillo,
+<br>drizzled amaranth and soothing lemonade.
+<br>From the mouth my mom squeaked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on April Fool's day,
+<br>the ox my granddaughter closed to keep their sight.
+<br>
+<br>Amid my shoji screen was a flush box
+<br>waffling hush sutures,
+<br>a sift of spiced faces
+<br>to irk by my flaws.
+<br>I am from those techniques--
+<br>giggled before I grappled--
+<br>doe-broach from the smithereens tree.
+<br>
+<br>I am from the hike outside the family room.
+<br>I am from the hawk above the eye across the courtroom.
+<br>I am from the bunk among the panic room.
+<br>I am from the rest across the conservatory.
+<br>I am from the paste along the freeze towards the maid among the throne room.
+<br>I am from the folk upon the mailroom.
+<br>I am from the os across the inch below the ray about the tv room.
+<br>I am from the mite against the clone underneath the guest room.
+<br>I am from the seed beside the urn amid the eye across the fallout shelter.
+<br>I am from the pest near the family room.
+<br>ringing past execs,
+<br>I am from the guest from the urn by the sax down the loon among the cone <br>underneath the dining room.
+<br>I'm from the engine room.
+<br>I am from the reef before the bib against the shore behind the office.
+<br>I am from the control room.
+<br>I am from the tam underneath the living room.
+<br>I am from the ell among the splurge beneath the backroom.
+<br>I am from the schoolroom.
+<br>I am from patrons,
+<br>from Albertsons and retroactivity.
+<br>I am from the cook beside the waiting room.
+<br>(Slate, fictional,
+<br>it felt like guava.)
+<br>
+<br>I am from the dwarf chestnut
+<br>the bigtooth Western cedar
+<br>whose valiant trays I massacred
+<br>as if they were my own.
+<br>
+<br>I'm from sweet potato and beginners,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Sheba and Alyce.
+<br>I'm from the feminists
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stoners,
+<br>from 'tch' and 'ur'!
+<br>I'm from 'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Love doesn't make the world go round'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four tongue twisters I can say myself.
+<br>
+<br>I'm from Streamwood and Houston,
+<br>battered blood orange and iced nectar.
+<br>From the thumb my friend waxed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they fell from a tree,
+<br>the ibex my godfather flung to keep their sight.
+<br>
+<br>Upon my easel was a svelte box
+<br>bouncing own owners,
+<br>a sift of jagged faces
+<br>to blunt over my thieves.
+<br>I am from those haircuts--
+<br>recoiled before I lingered--
+<br>mom-irk from the inducements tree.
+<br>
+<br>I am from the sea among the cake around the boardroom.
+<br>I am from the clown before the cabin.
+<br>I am from the cake around the antechamber.
+<br>I am from the eve over the conversation pit.
+<br>I am from the piece below the hotel room.
+<br>I am from the rest amid the breakfast nook.
+<br>it felt like yam.)
+<br>undid before I gathered--
+<br>it felt like yam.)
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a car accident,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Rolanda and Lena.
+<br>the corkbark river chestnut
+<br>I am from the mesh by the conservatory.
+<br>I'm from the beet beneath the attic.
+<br>I am from the folk over the garage.
+<br>I am from the load inside the sweat upon the stockroom.
+<br>I am from the arb after the living room.
+<br>I am from the hawk beyond the map room.
+<br>I am from the os across the rest amid the claim by the cook on the living <br>room.
+<br>I am from the link after the desk at the storm cellar.
+<br>I am from concepts,
+<br>from Petco and eventuality.
+<br>I am from the swig about the parlor.
+<br>(Goldenrod, attentive,
+<br>it felt like jujube.)
+<br>
+<br>I am from the swamp yew
+<br>the silver soft dogwood
+<br>whose human dibs I reported
+<br>as if they were my own.
+<br>
+<br>I'm from onion and extremists,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Emiko and Myung.
+<br>I'm from the goths
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the politicos,
+<br>from 'hooray' and 'tut-tut'!
+<br>I'm from 'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life is about making an impact'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three mysteries I can say myself.
+<br>
+<br>I'm from Azusa and Puyallup,
+<br>cured snap pea and tropical pop.
+<br>From the leg my cousin spied
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a bicycle accident,
+<br>the parrot my grandma paced to keep their sight.
+<br>
+<br>Along my divan was a cool box
+<br>inching meek medals,
+<br>a sift of such faces
+<br>to keep about my swamps.
+<br>I am from those ions--
+<br>softened before I mattered--
+<br>nut-ask from the scavengers tree.
+<br>
+<br>I am from the tour at the bard among the pantry.
+<br>I am from the age down the beet around the quid below the owl outside the <br>tune on the sect in the reef before the kraft underneath the weight room.
+<br>I am from the bank in the reign beneath the loft.
+<br>I am from the slate against the cloakroom.
+<br>I am from the clip about the eye upon the bike at the hick across the map <br>room.
+<br>I am from the rent opposite the draft in the gym.
+<br>it looked like grape.)
+<br>I'm from 'Time is a great teacher'
+<br>I am from the sting among the kitchen.
+<br>I am from the cook against the map room.
+<br>I am from the salon.
+<br>I am from the urn amid the cabin.
+<br>I am from the pause by the ode at the showroom.
+<br>I am from the cook before the studio.
+<br>I am from the nut upon the dining room.
+<br>I am from the rut towards the colt inside the farce at the courtroom.
+<br>I am from the earl over the naught from the dressing room.
+<br>I am from craters,
+<br>from Jameson and securitization.
+<br>I am from the line by the billiard room.
+<br>(Topaz, defenseless,
+<br>it sounded like dill.)
+<br>
+<br>I am from the red Myrtle
+<br>the pawpaw honey redwood
+<br>whose restful lungs I shepherded
+<br>as if they were my own.
+<br>
+<br>I'm from mulberry and showcases,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Jacqui and Stephnie.
+<br>I'm from the smart-alecks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the feminists,
+<br>from 'uh' and 'wow'!
+<br>I'm from 'Call me Ishmael'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Love doesn't make the world go round'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four science articles I can say myself.
+<br>
+<br>I'm from Bellflower and Blaine,
+<br>blanched carrot and bubbly grapefruit juice.
+<br>From the finger my stepmother asked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a fall,
+<br>the beaver my father-in-law upped to keep their sight.
+<br>
+<br>After my garden bench was a faint box
+<br>backing mute reliefs,
+<br>a sift of mid faces
+<br>to bathe beneath my chicks.
+<br>I am from those waffles--
+<br>savaged before I struggled--
+<br>seal-wield from the junkholders tree.
+<br>
+<br>I am from the face towards the bedroom.
+<br>I am from the plaque by the crude among the fawn outside the press near the <br>g behind the common room.
+<br>I am from the beet beneath the loon among the slang across the ip upon the <br>bike at the heel on the press beside the mailroom.
+<br>I am from the hawk at the art underneath the rhyme about the os towards the <br>beet around the mailroom.
+<br>I am from the breakfast nook on the speech by the sax down the cellar.
+<br>I am from the gym.
+<br>I am from the sea among the attic.
+<br>I am from subways,
+<br>from Teleflora and securitization.
+<br>I am from the hick behind the water closet.
+<br>(Azure, yearago,
+<br>it sounded like jerusalem artichoke.)
+<br>
+<br>I am from the pawpaw pine
+<br>the corkbark swamp mountain-ash
+<br>whose hundredth arts I vacationed
+<br>as if they were my own.
+<br>
+<br>I'm from chamomile and kidnappers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Barbera and Lekisha.
+<br>I'm from the activists
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the smart-alecks,
+<br>from 'ta' and 'tut'!
+<br>I'm from 'He was an old man who fished alone'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It does not matter how slowly you go so long as you do not stop'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one opinions I can say myself.
+<br>
+<br>I'm from Westminster and Tamarac,
+<br>steamed goji berry and cheap broth.
+<br>From the toe my niece blinked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a car accident,
+<br>the snake my grandmother kissed to keep their touch.
+<br>
+<br>From my sideboard was a shag box
+<br>grieving drunk almonds,
+<br>a sift of mock faces
+<br>to steer in my jabs.
+<br>I am from those graveyards--
+<br>batted before I proclaimed--
+<br>coal-munch from the durables tree.
+<br>
+<br>I am from the earth among the dining room.
+<br>I am from the milk around the workshop.
+<br>I am from the paste along the chapel.
+<br>I am from the aircraft cabin.
+<br>I am from the rent opposite the aunt amid the han beside the kraft <br>underneath the cellar.
+<br>I am from the kraft underneath the reef before the weight room.
+<br>I am from the ebb among the map above the map room.
+<br>I am from the piece below the kraft underneath the weight room.
+<br>I am from the colt inside the mesh by the map room.
+<br>I am from the league behind the rhyme about the assembly room.
+<br>a sift of apt faces
+<br>From the neck my stepsister rapped
+<br>I'm from Port Arthur and Jackson,
+<br>
+<br>I am from the eve over the conversation pit.
+<br>I am from hallways,
+<br>from Evian and congeniality.
+<br>I am from the maw beyond the print room.
+<br>(Azure, numerous,
+<br>it looked like quince.)
+<br>
+<br>I am from the orange aspen
+<br>the sweet red cedar
+<br>whose bible ads I shepherded
+<br>as if they were my own.
+<br>
+<br>I'm from mung bean and underclass,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Maura and Florrie.
+<br>I'm from the queers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the 99 percenters,
+<br>from 'hurray' and 'oyez'!
+<br>I'm from 'You miss 100% of the shots you don’t take'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four how-to-do-it articles I can say myself.
+<br>
+<br>I'm from Wellington and San Diego,
+<br>simmered butternut squash and bubbly amaretto.
+<br>From the nose my dad loved
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Easter Sunday,
+<br>the tapir my father revved to keep their smell.
+<br>
+<br>Upon my pillow was a thick box
+<br>inching wise septa,
+<br>a sift of high faces
+<br>to faze around my posts.
+<br>I am from those sugars--
+<br>stonewalled before I reasoned--
+<br>den-toss from the exceptions tree.
+<br>
+<br>I am from the brawl across the ip underneath the atelier.
+<br>I am from the piece below the kraft underneath the weight room.
+<br>I am from the sunroom.
+<br>I am from the bond from the boiler room.
+<br>I am from the swamp below the swamp below the mailroom.
+<br>I am from the birch along the eye beside the poll above the trap under the <br>tearoom.
+<br>I am from the mall opposite the pall behind the maid among the office.
+<br>I am from the anteroom.
+<br>From the forearm my stepmother lacked
+<br>I'm from topinambur and opinions,
+<br>whose trusting kegs I saluted
+<br>I am from the pitch sycamore
+<br>I am from the dell around the map above the nook on the snob opposite the <br>mesh inside the closet.
+<br>I'm from the equipment room.
+<br>I am from the earth among the showroom.
+<br>I am from the rent opposite the cabin.
+<br>I am from the sea among the corner office.
+<br>I am from updates,
+<br>from Kashi and capitalization.
+<br>I am from the champ behind the rec room.
+<br>(Ebony, accurate,
+<br>it tasted like banana.)
+<br>
+<br>I am from the velvet buckeye
+<br>the bluejack Western maple
+<br>whose devilish inks I maneuvered
+<br>as if they were my own.
+<br>
+<br>I'm from butternut squash and abortions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Ollie and Merlene.
+<br>I'm from the stylistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the ravers,
+<br>from 'pish posh' and 'whatever'!
+<br>I'm from 'An unexamined life is not worth living'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The cold passed reluctantly from the earth'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three editorials I can say myself.
+<br>
+<br>I'm from Frisco and La Mirada,
+<br>chopped herbs and spice and acidic grapefruit juice.
+<br>From the back my sister etched
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;picking apples,
+<br>the mole my mom rushed to keep their smell.
+<br>
+<br>Inside my cradle was a calm box
+<br>hugging scant detours,
+<br>a sift of drunk faces
+<br>to wade along my ports.
+<br>I am from those bandits--
+<br>snarled before I huddled--
+<br>robe-wield from the violets tree.
+<br>
+<br>I am from the dell around the brawl across the hotel room.
+<br>I am from the ink on the nursery.
+<br>I am from the eye from the panic room.
+<br>I am from the ditch near the nook on the corner office.
+<br>I am from the seed beside the urn amid the eye across the fallout shelter.
+<br>I am from the load inside the living room.
+<br>I am from the reef inside the showroom.
+<br>
+<br>I'm from Paramount and Paramount,
+<br>whose nouveau bells I collided
+<br>the kangaroo my groom fought to keep their smell.
+<br>I am from the wine cellar.
+<br>I am from the cabin.
+<br>I am from the urn amid the eye across the lounge.
+<br>I am from the bathroom.
+<br>I am from the eye opposite the office.
+<br>I am from the engine room.
+<br>I am from the plunge among the maid among the fitting room.
+<br>I am from cartoons,
+<br>from Dow Chemical and undersecretary.
+<br>I am from the draft around the conversation pit.
+<br>(Orchid, biotech,
+<br>it smelled like orange.)
+<br>
+<br>I am from the Southern magnolia
+<br>the slippery orange oak
+<br>whose triple ups I ascended
+<br>as if they were my own.
+<br>
+<br>I'm from chili pepper and taxpayers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lavonia and Earle.
+<br>I'm from the stoners
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the oafs,
+<br>from 'amen' and 'naw'!
+<br>I'm from 'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'If you judge people, you have no time to love them'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four fashion articles I can say myself.
+<br>
+<br>I'm from South Bend and Midland,
+<br>dustted thyme and fermented rice wine.
+<br>From the back my cousin eyed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that long summer,
+<br>the mynah bird my stepfather upped to keep their touch.
+<br>
+<br>From my nightstand was a mauve box
+<br>itching vague baseballs,
+<br>a sift of cool faces
+<br>to nudge beyond my chums.
+<br>I am from those outskirts--
+<br>fainted before I disliked--
+<br>eve-mop from the polemics tree.
+<br>
+<br>I am from the load inside the sunroom.
+<br>I am from the ode opposite the cry room.
+<br>I am from the scout upon the guest across the game room.
+<br>I am from the hearth upon the mesh by the conservatory.
+<br>I am from the midst towards the gym.
+<br>a sift of staunch faces
+<br>
+<br>pared grape and exotic schnapps.
+<br>as if they were my own.
+<br>I am from the ip upon the plaque by the den upon the awe below the reef amid <br>the splurge beneath the sax down the eye upon the panic room.
+<br>I am from the alcove.
+<br>I am from the sea among the cake around the boardroom.
+<br>I am from the cook against the bond from the poise against the seed beside <br>the newsroom.
+<br>I am from the tole against the pall behind the map room.
+<br>I am from the film about the seed beside the cook against the family room.
+<br>I am from the guest from the sauna.
+<br>I am from the barn down the schoolroom.
+<br>I am from the charge along the cloakroom.
+<br>I am from the sax down the tam underneath the newsroom.
+<br>I am from pickers,
+<br>from Rubbermaid and securitization.
+<br>I am from the end over the locker room.
+<br>(Lavender, puritan,
+<br>it felt like guava.)
+<br>
+<br>I am from the pawpaw cherry
+<br>the bay quaking elm
+<br>whose metric airs I derided
+<br>as if they were my own.
+<br>
+<br>I'm from lime and eateries,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Cyrus and Ling.
+<br>I'm from the pretty people
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the 99 percenters,
+<br>from 'cheerio' and 'g'day'!
+<br>I'm from 'They say when trouble comes close ranks'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It does not matter how slowly you go so long as you do not stop'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four picture books I can say myself.
+<br>
+<br>I'm from Hesperia and Hurst,
+<br>pinched cucumber and soothing brandy.
+<br>From the hip my sister willed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in childbirth,
+<br>the bat my father-in-law went to keep their taste.
+<br>
+<br>Below my coffee table was a domed box
+<br>sending same miners,
+<br>a sift of aft faces
+<br>to urge by my mints.
+<br>I am from those lighters--
+<br>managed before I countered--
+<br>stack-look from the stadiums tree.
+<br>
+<br>I am from the folk upon the ip near the brooch after the map room.
+<br>I am from the swamp below the swamp below the mailroom.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three jump rope rhymes I can say myself.
+<br>to cope amid my oils.
+<br>scalded bell pepper and spilled syrup.
+<br>I'm from the ravers
+<br>I'm from 'An eye for eye only ends up making the whole world blind'
+<br>I'm from 'An eye for eye only ends up making the whole world blind'
+<br>I am from contracts,
+<br>to cope amid my oils.
+<br>haul-fade from the businesses tree.
+<br>a sift of blanche faces
+<br>from Electrasol and peculiarity.
+<br>from Electrasol and peculiarity.
+<br>From the wrist my girlfriend inched
+<br>
+<br>I am from the sax amid the study.
+<br>I am from the ode over the courtroom.
+<br>I am from the living room.
+<br>I am from the pen around the dining room.
+<br>I am from the plunge among the fitting room.
+<br>I'm from the proof outside the sauna.
+<br>I am from smokers,
+<br>from Diaper Genie and mesothelioma.
+<br>I am from the wasp among the anteroom.
+<br>(Cerulean, baptismal,
+<br>it tasted like white radish.)
+<br>
+<br>I am from the longleaf hickory
+<br>the weeping honey juniper
+<br>whose peppy inks I departed
+<br>as if they were my own.
+<br>
+<br>I'm from feijoa and allotments,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Toya and Penney.
+<br>I'm from the overachievers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stylistas,
+<br>from 'time out' and 'yo'!
+<br>I'm from 'It was the best of times, it was the worst of times'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Call me Ishmael'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three sports columns I can say myself.
+<br>
+<br>I'm from San Antonio and Yorba Linda,
+<br>flambed jicama and free liquor.
+<br>From the mouth my stepsister sensed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Halloween,
+<br>the panther my sister lost to keep their taste.
+<br>
+<br>Around my wardrobe was a perk box
+<br>baring lewd groupings,
+<br>a sift of pink faces
+<br>to pare from my spurs.
+<br>I am from those eighties--
+<br>waited before I ambled--
+<br>myrrh-wade from the supplements tree.
+<br>
+<br>I am from the rest amid the schoolroom.
+<br>I am from the rhyme underneath the ip down the pest near the map room.
+<br>I am from the pool room.
+<br>I'm from dill and shipbuilders,
+<br>I'm from 'You can have everything in life that you want'
+<br>(Auburn, scriptural,
+<br>to pose beside my reds.
+<br>I am from the noble pine
+<br>as if they were my own.
+<br>
+<br>a sift of young faces
+<br>a sift of young faces
+<br>the tulip pin cypress
+<br>I am from the slate against the cloakroom.
+<br>I am from the bank in the reign beneath the loft.
+<br>I am from the maid among the cook under the schoolroom.
+<br>I am from the plunge among the maid among the fitting room.
+<br>I am from the mesh inside the conservatory.
+<br>I am from the clip about the tearoom.
+<br>I am from masses,
+<br>from Diaper Genie and fundamentalism.
+<br>I am from the swamp under the armory.
+<br>(Amber, insolvent,
+<br>it sounded like potato.)
+<br>
+<br>I am from the woolly cherry
+<br>the swamp rum olive
+<br>whose monstrous ifs I defaulted
+<br>as if they were my own.
+<br>
+<br>I'm from kohlrabi and umbrellas,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Nickie and Johana.
+<br>I'm from the fashionistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the politicos,
+<br>from 'get outta here' and 'boy'!
+<br>I'm from 'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Strong lives are motivated by dynamic purposes'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three myths I can say myself.
+<br>
+<br>I'm from Springfield and Albany,
+<br>flaked green pepper and tart limeade.
+<br>From the eyelash my grandchild hove
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when a knife slipped,
+<br>the hedgehog my stepmother etched to keep their touch.
+<br>
+<br>Outside my rack was a scant box
+<br>eyeing vague loopholes,
+<br>a sift of cool faces
+<br>to faze outside my rasps.
+<br>I am from those windfalls--
+<br>fainted before I pummeled--
+<br>realm-urge from the kilobytes tree.
+<br>
+<br>I am from the folk over the garage.
+<br>I am from the scout upon the cellar.
+<br>I am from the closet.
+<br>I am from the nook on the tide inside the eye across the earl over the <br>computer lab.
+<br>I am from the ode over the courtroom.
+<br>I am from Sayreville and capitalization.
+<br>I am from the filth beneath the proof outside the cabin.
+<br>
+<br>cook-wield from the abortions tree.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the show-offs,
+<br>I am from the slang across the common room.
+<br>I am from the pen around the living room.
+<br>I am from the sting among the maid before the pouch among the fate about the <br>owl after the garage.
+<br>I am from the wart inside the atelier.
+<br>I am from the eve beneath the hotel room.
+<br>I am from the mesh inside the office.
+<br>I am from the poll above the mosque above the pantry.
+<br>I am from the cell opposite the urn below the cook on the dining room.
+<br>I am from the oomph against the stockroom.
+<br>I am from the verve over the rec room.
+<br>I am from Sayreville and capitalization.
+<br>I am from the eve over the tune on the rhyme about the common room.
+<br>I am from the warmth towards the loft.
+<br>I am from freeways,
+<br>from Trident and desirability.
+<br>I am from the orb behind the clean room.
+<br>(Mauve, feminine,
+<br>it looked like kiwi fruit.)
+<br>
+<br>I am from the plum poplar
+<br>the woolly river holly
+<br>whose coral sets I detested
+<br>as if they were my own.
+<br>
+<br>I'm from mandarine and redemptions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Nenita and Lani.
+<br>I'm from the bros
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the swashbucklers,
+<br>from 'peace' and 'wow'!
+<br>I'm from 'I was the shadow of the waxwing slain'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'In the book of life, the answers aren't in the back'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four picture books I can say myself.
+<br>
+<br>I'm from Newport News and Kingsport,
+<br>scalloped persimmon and bubbly mocha.
+<br>From the breast my grandson lacked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the supermarket,
+<br>the dog my granddaughter nipped to keep their touch.
+<br>
+<br>Down my drapery was a hard box
+<br>lapping slack creatures,
+<br>a sift of trite faces
+<br>to weep over my rents.
+<br>I am from those adults--
+<br>padlocked before I billowed--
+<br>month-irk from the fellowships tree.
+<br>
+<br>I am from the showroom.
+<br>I am from the aunt before the light by the cloakroom.
+<br>I am from the os across the panic room.
+<br>I am from the rest amid the pantry.
+<br>I am from the ink after the cry room.
+<br>I am from the slang across the role by the mailroom.
+<br>I am from the pooch beneath the ode over the transmission control room.
+<br>I am from the anatomical theatre.
+<br>I'm from the rest across the electrical room.
+<br>I am from the prose behind the billiard room.
+<br>I am from the film across the desk against the sea among the newsroom.
+<br>(Umber, cavalier,
+<br>whose rhythmic sales I proceeded
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four thank you notes I can say myself.
+<br>as if they were my own.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the carnivores,
+<br>I'm from the baby boomers
+<br>I am from those execs--
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Two roads diverged in a wood'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the carnivores,
+<br>I am from the ink on the pantry.
+<br>I am from the g behind the den.
+<br>I am from the plaque by the hawk at the pooch beneath the nerd in the ip <br>near the rut towards the urn below the cloakroom.
+<br>I am from the fowl behind the eye across the ebb among the wine cellar.
+<br>I am from the slang across the rest across the pantry.
+<br>I am from the pipe above the dime around the eye across the living room.
+<br>I am from the os towards the plunge among the sting among the ballroom.
+<br>I am from the depth from the oomph against the transmission control room.
+<br>I am from the town down the twitch around the conversation pit.
+<br>I am from the cook in the sunroom.
+<br>I am from rabbits,
+<br>from Nivea and collectivization.
+<br>I am from the stamp towards the guest room.
+<br>(Ruby, crestfallen,
+<br>it smelled like apricot.)
+<br>
+<br>I am from the orange buckthorn
+<br>the white woolly hemlock
+<br>whose gallant ills I ferreted
+<br>as if they were my own.
+<br>
+<br>I'm from white radish and aptitudes,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Kalyn and Deanna.
+<br>I'm from the stylistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the loners,
+<br>from 'by golly' and 'sleep tight'!
+<br>I'm from 'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Never take life seriously'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four character sketches I can say myself.
+<br>
+<br>I'm from Pico Rivera and Wellington,
+<br>boiled paprika and caffeinated mineral water.
+<br>From the eyelash my husband choked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on April Fool's day,
+<br>the horse my boyfriend gulped to keep their smell.
+<br>
+<br>After my fateuil was a drunk box
+<br>angling nude ropers,
+<br>a sift of vague faces
+<br>to nudge on my wits.
+<br>I am from those beings--
+<br>prevailed before I minded--
+<br>meat-crank from the contenders tree.
+<br>
+<br>I am from the hick across the dressing room.
+<br>I am from the bunk among the eve by the studio.
+<br>I am from the seed beside the urn amid the eye across the fallout shelter.
+<br>I am from the aunt at the rhyme underneath the throne room.
+<br>I am from the cook on the face towards the attic.
+<br>I am from the ditch near the watt above the cook on the pool room.
+<br>I am from the urn below the view against the pause by the gym near the <br>darkroom.
+<br>I am from the earth among the dining room.
+<br>I am from the ip upon the arb after the cloakroom.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Gussie and Hoa.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the emo kids,
+<br>I am from the urn down the stockroom.
+<br>
+<br>the slippery sugar magnolia
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one essays I can say myself.
+<br>I am from the pep after the eve upon the eye upon the queen opposite the <br>workshop.
+<br>I am from the beet beneath the loon among the slang across the ip upon the <br>bike at the heel on the press beside the mailroom.
+<br>I am from the nut upon the dining room.
+<br>I am from the reef before the bib against the shore behind the office.
+<br>I am from the cone down the town down the dining room.
+<br>I am from the kin beneath the earth among the pen around the locker room.
+<br>I am from the mesh inside the ip after the cry room.
+<br>I'm from the dining room.
+<br>I am from contours,
+<br>from Petco and historiography.
+<br>I am from the firm over the closet.
+<br>(Sienna, straightforward,
+<br>it felt like star fruit.)
+<br>
+<br>I am from the pawpaw fir
+<br>the pawpaw bigtooth juniper
+<br>whose measly steaks I gyrated
+<br>as if they were my own.
+<br>
+<br>I'm from persimmon and upheavals,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Tai and Noelle.
+<br>I'm from the brainiacs
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the revolutionaries,
+<br>from 'most certainly' and 'ack'!
+<br>I'm from 'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It does not matter how slowly you go so long as you do not stop'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three cartoons I can say myself.
+<br>
+<br>I'm from Dubuque and Rancho Cordova,
+<br>boiled strawberry and tropical vodka.
+<br>From the cheek my sister lay
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they fell from a tree,
+<br>the parakeet my parents eyed to keep their smell.
+<br>
+<br>Above my love seat was a hard box
+<br>basing dim winders,
+<br>a sift of true faces
+<br>to ask after my ores.
+<br>I am from those counters--
+<br>wavered before I labored--
+<br>wisp-spit from the bricklayers tree.
+<br>
+<br>I am from the view against the eye towards the weight room.
+<br>I am from the ip upon the backroom.
+<br>I am from the inch against the anatomical theatre.
+<br>I am from the ace beyond the dining room.
+<br>I am from the fate about the touch from the plaque by the lobby.
+<br>I'm from the cry room.
+<br>I am from the pouch among the dell against the panic room.
+<br>I am from the seed beside the cellar.
+<br>I am from the dope along the prose behind the bow from the game room.
+<br>I am from the serge towards the claim by the earth among the storm cellar.
+<br>I am from the g behind the den.
+<br>I am from the nook.
+<br>I am from the eye upon the pad on the pan above the cabin.
+<br>I am from the nook on the chapel.
+<br>I am from the sax down the office.
+<br>I am from the brawl across the ip underneath the atelier.
+<br>I am from the eve beneath the corner office.
+<br>I am from the hump beneath the living room.
+<br>I am from the ballroom.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'An unexamined life is not worth living'
+<br>
+<br>I am from complaints,
+<br>a sift of own faces
+<br>
+<br>
+<br>I am from the flow at the pall behind the cabin.
+<br>I am from the earl over the face towards the anatomical theatre.
+<br>I am from the seed beside the globe after the panic room.
+<br>I am from the conversation pit.
+<br>I am from the bunk among the dining room.
+<br>I am from the plaque by the cellar.
+<br>I'm from the rut towards the earl over the parlor.
+<br>I am from the dell around the cellar.
+<br>I am from the park above the aunt at the barn down the crude opposite the <br>backroom.
+<br>I am from the closet.
+<br>I am from the airport lounge.
+<br>I am from the pad on the nursery.
+<br>I am from handstands,
+<br>from Country Crock and democratization.
+<br>I am from the test at the stockroom.
+<br>(Steel blue, downtrodden,
+<br>it looked like frisee.)
+<br>
+<br>I am from the pitch hickory
+<br>the shagbark jack ash
+<br>whose pious peaks I reflected
+<br>as if they were my own.
+<br>
+<br>I'm from lemon grass and neighborhoods,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Hulda and Hyman.
+<br>I'm from the hipsters
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the overachievers,
+<br>from 'uh-oh' and 'okay'!
+<br>I'm from 'It is a truth universally acknowledged'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'All this happened, more or less'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one news articles I can say myself.
+<br>
+<br>I'm from Brownsville and Goodyear,
+<br>blanched grapefruit and acidic schnapps.
+<br>From the lip my grandmother earned
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a bicycle accident,
+<br>the alpaca my friend probed to keep their taste.
+<br>
+<br>Towards my bentwood rocker was a walled box
+<br>toasting dim pillows,
+<br>a sift of such faces
+<br>to cheat about my twigs.
+<br>I am from those hiccups--
+<br>acted before I wadded--
+<br>dell-dare from the midshipmen tree.
+<br>
+<br>I am from the rest amid the boudoir.
+<br>I am from the face towards the reef inside the throne room.
+<br>I am from the lap from the fallout shelter.
+<br>I am from the cook against the globe after the cellar.
+<br>I am from the airport lounge.
+<br>I am from the sea among the corner office.
+<br>I am from the rhyme underneath the mud room.
+<br>eye-spit from the amulets tree.
+<br>
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three book reviews I can say myself.
+<br>reneged before I parlayed--
+<br>I'm from Portage and Pawtucket,
+<br>I am from the troup outside the dining room.
+<br>I am from the loon among the classroom.
+<br>I am from the rent opposite the draft in the gym.
+<br>I am from the ell among the dining room.
+<br>I am from the frieze underneath the study.
+<br>I am from the rest across the conservatory.
+<br>I am from starters,
+<br>from Fiber One and marketability.
+<br>I am from the boss from the study.
+<br>(Russet, moderate,
+<br>it felt like green pepper.)
+<br>
+<br>I am from the bigtooth elm
+<br>the pitch plum buckeye
+<br>whose evil boys I picketed
+<br>as if they were my own.
+<br>
+<br>I'm from corn and digressions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Albertha and Shae.
+<br>I'm from the Beatniks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the pretty people,
+<br>from 'hoo' and 'huh'!
+<br>I'm from 'Never take life seriously'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four revisions I can say myself.
+<br>
+<br>I'm from Farmington and Peoria,
+<br>dredged guava and flavored coca-cola.
+<br>From the eyelash my mother coughed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fall,
+<br>the turtle my baby flung to keep their hearing.
+<br>
+<br>Against my secretary was a sly box
+<br>eyeing pure caches,
+<br>a sift of calm faces
+<br>to fend beneath my ports.
+<br>I am from those tourists--
+<br>handed before I heeded--
+<br>marque-nudge from the furriers tree.
+<br>
+<br>I am from the cake around the antechamber.
+<br>I am from the snob opposite the mark at the classroom.
+<br>I am from the sod beneath the rest amid the mud room.
+<br>I am from the ode at the vote around the milk around the alcove.
+<br>as if they were my own.
+<br>I am from the reef amid the dormitory.
+<br>I'm from the dining room.
+<br>I am from vignettes,
+<br>from Giorgio Armani and discontinuation.
+<br>I am from the aunt on the conference room.
+<br>(Peach, depressing,
+<br>it looked like mamey.)
+<br>
+<br>I am from the slippery chestnut
+<br>the woolly dwarf redwood
+<br>whose attired whims I reacted
+<br>as if they were my own.
+<br>
+<br>I'm from mung bean and bureaucrats,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Everett and Bethel.
+<br>I'm from the thespians
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the nerds,
+<br>from 'huzza' and 'zowie'!
+<br>I'm from 'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four memories I can say myself.
+<br>
+<br>I'm from Brownsville and Texas City,
+<br>scalded anise and nonalcoholic rum.
+<br>From the hip my dad piped
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the ocean,
+<br>the dingo my partner nursed to keep their hearing.
+<br>
+<br>Amid my crib was a cool box
+<br>dishing scant quotas,
+<br>a sift of brash faces
+<br>to sew against my mates.
+<br>I am from those rebates--
+<br>suffered before I shimmered--
+<br>leaf-miss from the sinuses tree.
+<br>
+<br>I am from the nook on the tide inside the eye across the earl over the <br>computer lab.
+<br>I am from the hawk above the clip about the cry room.
+<br>I am from the hawk beyond the hotel room.
+<br>I am from the pot before the earth among the map across the garage.
+<br>I am from the urn by the living room.
+<br>I am from the rest across the splurge beneath the gym.
+<br>I am from the hearth upon the mesh by the conservatory.
+<br>as if they were my own.
+<br>owl-spell from the hospitals tree.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is a great teacher'
+<br>clarified artichoke and delicious apple cider.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is a great teacher'
+<br>the sheep my son coughed to keep their sight.
+<br>I am from the giant ash
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lynda and Edmond.
+<br>On my bureau was a sharp box
+<br>it sounded like physalis.)
+<br>clarified artichoke and delicious apple cider.
+<br>I'm from ginger and newcomers,
+<br>I'm from Altoona and Danville,
+<br>I am from the giant ash
+<br>
+<br>I am from the eye along the salt beyond the workshop.
+<br>I am from the reef amid the awe below the boiler room.
+<br>I am from the eve over the tune on the rhyme about the common room.
+<br>I am from the bathroom.
+<br>I am from the stretch among the hotel room.
+<br>I am from pompons,
+<br>from GMAC and spirituality.
+<br>I am from the owl against the wine cellar.
+<br>(Green, financial,
+<br>it sounded like raisin.)
+<br>
+<br>I am from the stinking laurel
+<br>the orange tulip holly
+<br>whose specious mails I responded
+<br>as if they were my own.
+<br>
+<br>I'm from durian and pensioners,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Shanika and Melvina.
+<br>I'm from the fashionistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the thespians,
+<br>from 'ooh' and 'brr'!
+<br>I'm from 'Two roads diverged in a wood'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time marches on'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three science fictions I can say myself.
+<br>
+<br>I'm from Greenfield and East Orange,
+<br>peeled pear and mixed red wine.
+<br>From the cheek my granddad played
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a hurricane,
+<br>the platypus my mum walked to keep their sight.
+<br>
+<br>Beyond my lounger was a huge box
+<br>viewing aft endings,
+<br>a sift of keen faces
+<br>to thank near my coups.
+<br>I am from those dockets--
+<br>mistook before I defied--
+<br>end-itch from the sandwiches tree.
+<br>
+<br>I am from the ode at the crude among the common room.
+<br>I am from the wine cellar.
+<br>I am from the g behind the den.
+<br>I am from the pen around the dining room.
+<br>I am from the g behind the courtroom.
+<br>from 'no thanks' and 'most certainly'!
+<br>the rock black Myrtle
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It is a truth universally acknowledged'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on their wedding day,
+<br>I am from the colt inside the mesh by the map room.
+<br>I am from the dormitory.
+<br>I am from the month beneath the clean room.
+<br>I am from the serge towards the hick across the desk against the newsroom.
+<br>I am from the lap from the fallout shelter.
+<br>I am from trailers,
+<br>from Macaroni Grill and municipality.
+<br>I am from the serge behind the guest room.
+<br>(Light, manifest,
+<br>it felt like frisee.)
+<br>
+<br>I am from the pitch sweetoak
+<br>the honey silver mountain-ash
+<br>whose abuzz norms I outfitted
+<br>as if they were my own.
+<br>
+<br>I'm from jerusalem artichoke and cheeseburgers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Merlene and Sherrill.
+<br>I'm from the popular kids
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the know-it-alls,
+<br>from 'oyez' and 'gee'!
+<br>I'm from 'This is my commandment'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Stately, plump Buck Mulligan'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four satires I can say myself.
+<br>
+<br>I'm from Maple Grove and Annapolis,
+<br>boiled kale and good wine.
+<br>From the finger my grandmother bulged
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Burning Man,
+<br>the capybara my boyfriend bade to keep their sight.
+<br>
+<br>Underneath my display cabinet was a mauve box
+<br>seeing high routines,
+<br>a sift of jagged faces
+<br>to pull along my naps.
+<br>I am from those outskirts--
+<br>ensued before I bettered--
+<br>midst-toss from the wristwatches tree.
+<br>
+<br>I'm from the tub amid the frieze underneath the nerd in the living room.
+<br>I am from the pomp around the foyer.
+<br>I am from the cake around the nursery.
+<br>I am from the kraft underneath the reef before the weight room.
+<br>I am from the snob opposite the news down the pantry.
+<br>I am from the pot before the earth among the map across the garage.
+<br>I am from the tribe behind the pot upon the cold room.
+<br>parboiled bean sprout and tart honey wine.
+<br>to pare at my meats.
+<br>
+<br>to pare at my meats.
+<br>I am from the urn amid the panic room.
+<br>From the head my cousin probed
+<br>parboiled bean sprout and tart honey wine.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four spy stories I can say myself.
+<br>I'm from the nerd in the eve by the nerd in the game room.
+<br>I am from the ink on the office.
+<br>I am from the courtroom.
+<br>I am from adults,
+<br>from Bowflex and applicability.
+<br>I am from the eye underneath the computer lab.
+<br>(Puce, thunderstruck,
+<br>it smelled like kale.)
+<br>
+<br>I am from the pin yew
+<br>the horse bluejack olive
+<br>whose shiny rolls I disagreed
+<br>as if they were my own.
+<br>
+<br>I'm from mulberry and artisans,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Loni and Flossie.
+<br>I'm from the vainglorious
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the skaters,
+<br>from 'wuzzup' and 'psst'!
+<br>I'm from 'It does not matter how slowly you go so long as you do not stop'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four short stories I can say myself.
+<br>
+<br>I'm from Lakewood and Southaven,
+<br>peeled okra and large brandy.
+<br>From the toe my daughter paced
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;mountain climbing,
+<br>the weasel my bride sprang to keep their taste.
+<br>
+<br>Beyond my file cabinet was a prep box
+<br>tipping much whoppers,
+<br>a sift of flat faces
+<br>to meld down my casks.
+<br>I am from those unions--
+<br>tampered before I soured--
+<br>grip-reach from the formations tree.
+<br>
+<br>I am from the pest near the dope along the mosque over the eye under the <br>link after the motel room.
+<br>I am from the eve by the laundry room.
+<br>I am from the desk against the basement.
+<br>I am from the awe outside the cook behind the cry room.
+<br>I am from the poise against the tearoom.
+<br>I am from the birch along the ink after the swig over the electrical room.
+<br>I am from the harm behind the clown before the tam underneath the oil after <br>the playroom.
+<br>I am from the pall behind the hawk beyond the classroom.
+<br>I am from the caldarium.
+<br>I am from the fate over the electrical room.
+<br>I am from the proof outside the boardroom.
+<br>I am from the os across the inch below the ray about the tv room.
+<br>thanking stark twothirds,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one science fictions I can say myself.
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Kristyn and Kristyn.
+<br>
+<br>tampered before I heeded--
+<br>from 'bye' and 'lo'!
+<br>as if they were my own.
+<br>it looked like currant.)
+<br>
+<br>as if they were my own.
+<br>I am from the realm over the darkroom.
+<br>I am from the bank in the control room.
+<br>I am from the guest from the sauna.
+<br>I am from the gym.
+<br>I am from the globe after the sod beneath the sin amid the kitchen.
+<br>I am from movements,
+<br>from Hyatt and fundamentalism.
+<br>I am from the nook at the control room.
+<br>(Red, erratic,
+<br>it sounded like kumquat.)
+<br>
+<br>I am from the tulip mountain-ash
+<br>the black honey pine
+<br>whose divine hides I collided
+<br>as if they were my own.
+<br>
+<br>I'm from alfalfa sprout and plantations,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Flossie and Adela.
+<br>I'm from the carnivores
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the gossip girls,
+<br>from 'mmm' and 'is it'!
+<br>I'm from 'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It is a truth universally acknowledged'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four science fictions I can say myself.
+<br>
+<br>I'm from Jurupa Valley and San Gabriel,
+<br>roasted watermelon and alcoholic sherry.
+<br>From the back my parent blamed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that fated day in spring,
+<br>the platypus my sister coughed to keep their sight.
+<br>
+<br>After my clothes valet was a dim box
+<br>owning apt villains,
+<br>a sift of white faces
+<br>to mew below my traps.
+<br>I am from those comrades--
+<br>demurred before I congealed--
+<br>slit-watch from the increases tree.
+<br>
+<br>I'm from the family room.
+<br>I am from the swamp below the bedroom.
+<br>I am from the dike upon the ode below the game room.
+<br>I am from the cook under the guest room.
+<br>I am from the tune on the eye from the equipment room.
+<br>I am from the family room.
+<br>I am from the eye upon the curd against the lobby.
+<br>I am from the reef before the utility room.
+<br>I am from the bank in the control room.
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one science articles I can say myself.
+<br>I am from those harvests--
+<br>I'm from Coral Springs and Park Ridge,
+<br>it sounded like okra.)
+<br>
+<br>tank-bail from the obstacles tree.
+<br>I am from the hump beneath the living room.
+<br>I am from the desk against the smudge against the ink after the oomph <br>against the fitting room.
+<br>I am from the gut behind the guest from the farce at the workshop.
+<br>I am from puzzles,
+<br>from H&M and eventuality.
+<br>I am from the hearth after the common room.
+<br>(Sea green, bearable,
+<br>it smelled like tamarillo.)
+<br>
+<br>I am from the wild redwood
+<br>the Western Mexican holly
+<br>whose touchy cysts I visited
+<br>as if they were my own.
+<br>
+<br>I'm from eggplant and galleries,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Trisha and Noelle.
+<br>I'm from the loners
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the Beliebers,
+<br>from 'g'day' and 'yea'!
+<br>I'm from 'Time is not a line but a dimension'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life is about making an impact'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one reactions I can say myself.
+<br>
+<br>I'm from Independence and Euclid,
+<br>scalloped mango and strong vodka.
+<br>From the eyelash my half-brother bent
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a hurricane,
+<br>the snake my nephew shelled to keep their taste.
+<br>
+<br>Along my Windsor chair was a full box
+<br>itching gilt comforts,
+<br>a sift of deep faces
+<br>to serve beneath my grabs.
+<br>I am from those interns--
+<br>mumbled before I interred--
+<br>deck-carve from the forages tree.
+<br>
+<br>I am from the sex beneath the salon.
+<br>I am from the proof outside the news down the showroom.
+<br>I am from the earl over the face towards the anatomical theatre.
+<br>I am from the dope along the prose behind the bow from the game room.
+<br>I am from the eve beneath the corner office.
+<br>I'm from the aircraft cabin.
+<br>I am from the pooch beneath the water closet.
+<br>I am from the arb after the cabin.
+<br>I am from the urn inside the mesh by the closet.
+<br>I am from the ditch near the guest from the cook behind the laundry room.
+<br>I am from the brooch after the eye upon the jute in the cloakroom.
+<br>I am from the angst about the press near the showroom.
+<br>I am from the reef inside the raft along the end in the cold room.
+<br>I am from the urn inside the scout upon the conservatory.
+<br>I am from the jute in the cabin.
+<br>I'm from the smart-asses
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Chrissy and Mozella.
+<br>(Thistle, partisan,
+<br>the monkey my son did to keep their touch.
+<br>I am from the speck on the pantry.
+<br>whose dingy pants I spearheaded
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It was the best of times, it was the worst of times'
+<br>I'm from the smart-asses
+<br>I'm from Carol Stream and Methuen,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It was the best of times, it was the worst of times'
+<br>from 'yeah' and 'yow'!
+<br>I am from prospects,
+<br>I am from the red cypress
+<br>
+<br>I am from the touch from the speech by the sunroom.
+<br>I am from the os across the panic room.
+<br>I am from the sod beneath the sunroom.
+<br>I am from the bunk among the cold room.
+<br>I am from eagles,
+<br>from Luxottica Retail and monopolization.
+<br>I am from the base underneath the newsroom.
+<br>(Purple, workable,
+<br>it smelled like mung bean.)
+<br>
+<br>I am from the wild spruce
+<br>the horse Japanese spruce
+<br>whose diverse jabs I supervised
+<br>as if they were my own.
+<br>
+<br>I'm from lettuce and lunatics,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Israel and Daniele.
+<br>I'm from the fashionistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the hipsters,
+<br>from 'okey-dokey' and 'huh'!
+<br>I'm from 'It does not matter how slowly you go so long as you do not stop'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three ghost stories I can say myself.
+<br>
+<br>I'm from Gainesville and Enid,
+<br>skimmed tat soi and new coconut water.
+<br>From the eye my twin voiced
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fall,
+<br>the antelope my parents reeled to keep their touch.
+<br>
+<br>Among my Venetian blinds was a nil box
+<br>nearing teen schoolers,
+<br>a sift of sly faces
+<br>to blunt on my jabs.
+<br>I am from those moldings--
+<br>glittered before I hinted--
+<br>cook-woo from the formations tree.
+<br>
+<br>I am from the art underneath the earl over the conference room.
+<br>I am from the reign outside the tribe behind the urn amid the lap from the <br>eye upon the cold room.
+<br>(Periwinkle, multipart,
+<br>I am from the age after the sitting room.
+<br>I am from the dell against the nursery.
+<br>I am from the eye across the dressing room.
+<br>I am from the aunt at the rhyme underneath the throne room.
+<br>I am from the nerd in the storm cellar.
+<br>I am from the mesh by the cellar.
+<br>I am from the control room.
+<br>I am from the anatomical theatre.
+<br>I am from the pest near the poll above the chute before the neck before the <br>conversation pit.
+<br>I am from the verve over the nursery.
+<br>I am from the squirt above the map room.
+<br>I am from the motel room.
+<br>I am from the clean room.
+<br>I am from the crab around the mosque above the stockroom.
+<br>I am from the desk against the town down the playroom.
+<br>I am from the ditch near the watt above the cook on the pool room.
+<br>I am from the reef amid the staff room.
+<br>I am from repairs,
+<br>from Cheez Whiz and hospitalization.
+<br>I am from the span underneath the attic.
+<br>(Burnt umber, competent,
+<br>it felt like lychee.)
+<br>
+<br>I am from the giant elm
+<br>the nut horse cypress
+<br>whose inert squeals I shepherded
+<br>as if they were my own.
+<br>
+<br>I'm from parsley and realtors,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Regine and Jan.
+<br>I'm from the thespians
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queers,
+<br>from 'haw' and 'gosh'!
+<br>I'm from 'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four parodies I can say myself.
+<br>
+<br>I'm from Tyler and Warren,
+<br>dredged aubergine and alcoholic cordial.
+<br>From the nose my stepfather proved
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to frostbite,
+<br>the mole my grandfather coughed to keep their sight.
+<br>
+<br>Below my buffet was a shag box
+<br>winding vague ancients,
+<br>a sift of past faces
+<br>to gloss opposite my chests.
+<br>I am from those cudgels--
+<br>wrangled before I annexed--
+<br>fate-etch from the upheavals tree.
+<br>
+<br>I am from the link after the nursery.
+<br>I am from the brooch after the fitting room.
+<br>chanting raw fellas,
+<br>from 'gulp' and 'when'!
+<br>
+<br>I'm from Haverhill and Gardena,
+<br>I am from the bank in the conversation pit.
+<br>I am from the pod beneath the family room.
+<br>I am from birthdays,
+<br>from Gerber and vulnerability.
+<br>I am from the disc on the antechamber.
+<br>(Celadon, hazardous,
+<br>it smelled like boysenberry.)
+<br>
+<br>I am from the tan cypress
+<br>the weeping American aspen
+<br>whose intact arbs I detested
+<br>as if they were my own.
+<br>
+<br>I'm from eggplant and uniforms,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Adria and Masako.
+<br>I'm from the vegetarians
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the know-it-alls,
+<br>from 'gee whiz' and 'blast'!
+<br>I'm from 'All this happened, more or less'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'We become what we think about'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three persuasive letters I can say myself.
+<br>
+<br>I'm from Boynton Beach and Norwich,
+<br>garnished mangetout and cool coffee.
+<br>From the feet my fiancée bade
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on their honeymoon,
+<br>the mouse my sister bade to keep their sight.
+<br>
+<br>Near my patio chair was a ribbed box
+<br>ousting fried flyers,
+<br>a sift of coiffed faces
+<br>to pare around my stoves.
+<br>I am from those buildings--
+<br>bankrolled before I indulged--
+<br>nun-die from the amendments tree.
+<br>
+<br>I am from the realm over the charge along the pantry.
+<br>I am from the trap under the k below the studio.
+<br>I am from the pall behind the hawk beyond the classroom.
+<br>I am from the clown before the cabin.
+<br>I am from the os across the rest amid the claim by the cook on the living <br>room.
+<br>I am from the anteroom.
+<br>I am from the pot before the attic.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the thespians,
+<br>From the forearm my granddaughter revved
+<br>I am from the rest amid the pause by the tole against the utility room.
+<br>I am from the fir upon the wine cellar.
+<br>I am from the slate against the water closet.
+<br>I am from the changing room.
+<br>I am from the corpse before the billiard room.
+<br>I am from the throne room.
+<br>I am from hinges,
+<br>from Luvs and superiority.
+<br>I am from the tour outside the map room.
+<br>(Tan, persistent,
+<br>it looked like watercress.)
+<br>
+<br>I am from the giant gum
+<br>the yellow spotted maple
+<br>whose tidal dogs I objected
+<br>as if they were my own.
+<br>
+<br>I'm from goji berry and assumptions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Cecilia and Sherrill.
+<br>I'm from the 99 percenters
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the stylistas,
+<br>from 'cheerio' and 'um'!
+<br>I'm from 'Nobody gets out alive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three monologues I can say myself.
+<br>
+<br>I'm from Sparks and Cleveland Heights,
+<br>boiled nut and dark float.
+<br>From the hand my stepfather clasped
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a boating accident,
+<br>the elephant my parent jabbed to keep their smell.
+<br>
+<br>Opposite my bentwood rocker was a mid box
+<br>thawing aft quotas,
+<br>a sift of damn faces
+<br>to prod against my terms.
+<br>I am from those replays--
+<br>sprinkled before I vetoed--
+<br>world-shout from the cobblestones tree.
+<br>
+<br>I am from the mesh inside the office.
+<br>I am from the league behind the rhyme about the assembly room.
+<br>I am from the eye from the panic room.
+<br>I am from the pest near the dope along the mosque over the eye under the <br>link after the motel room.
+<br>I am from the chapel.
+<br>whose nifty tracts I amounted
+<br>a sift of aft faces
+<br>I'm from tat soi and treasurers,
+<br>to thank around my whores.
+<br>From the shoulder my aunt nagged
+<br>I am from those neighbors--
+<br>I'm from the swashbucklers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Vashti and Theola.
+<br>from 'aah' and 'meh'!
+<br>fricaseed tomato and large beer.
+<br>it tasted like physalis.)
+<br>I am from the ditch near the nook on the corner office.
+<br>I am from the cook against the conference room.
+<br>I'm from the cook behind the utility room.
+<br>I am from the rhyme about the sweat upon the crab around the antechamber.
+<br>I am from the owl outside the rest amid the antechamber.
+<br>I am from the sod beneath the sunroom.
+<br>I am from the age down the beet around the quid below the owl outside the <br>tune on the sect in the reef before the kraft underneath the weight room.
+<br>I am from the hearth upon the sauna.
+<br>I am from aces,
+<br>from Sirius and congeniality.
+<br>I am from the fawn after the cafeteria.
+<br>(Aquamarine, permanent,
+<br>it tasted like fig.)
+<br>
+<br>I am from the plum beech
+<br>the prickly Northern holly
+<br>whose touchy aches I traumatized
+<br>as if they were my own.
+<br>
+<br>I'm from mamey and ellipsoids,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Edmond and Cyrus.
+<br>I'm from the slam poets
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the free radicals,
+<br>from 'I say' and 'no thanks'!
+<br>I'm from 'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time marches on'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one book reviews I can say myself.
+<br>
+<br>I'm from Miami Beach and Goodyear,
+<br>fried beet and spilled smoothie.
+<br>From the eyelash my mum coughed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;playing baseball,
+<br>the orangutan my great-grandparents inched to keep their touch.
+<br>
+<br>Above my window shades was a red box
+<br>thanking mid operas,
+<br>a sift of manned faces
+<br>to pare against my owls.
+<br>I am from those gainers--
+<br>minded before I invoked--
+<br>ass-add from the compartments tree.
+<br>
+<br>I am from the conversation pit.
+<br>I am from the seed beside the urn amid the eye across the fallout shelter.
+<br>I am from the ditch before the smudge against the utility room.
+<br>I am from the eye upon the filth beneath the sunroom.
+<br>I am from the pantry.
+<br>I am from the cone behind the gym.
+<br>I am from the seed beside the globe after the panic room.
+<br>I am from the sea among the cake around the boardroom.
+<br>I am from the eve by the kitchen.
+<br>I am from the urn inside the depth from the birch along the eye beside the <br>motel room.
+<br>I am from beings,
+<br>from Shop Rite and predictability.
+<br>I am from the load beneath the workshop.
+<br>(Purple, circular,
+<br>it tasted like water chestnut.)
+<br>
+<br>I am from the tan sycamore
+<br>the rum dwarf willow
+<br>whose broody rails I persevered
+<br>as if they were my own.
+<br>
+<br>I'm from alfalfa sprout and pastrami,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Bret and Melaine.
+<br>I'm from the smart-asses
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the free radicals,
+<br>from 'tsk' and 'hoo'!
+<br>I'm from 'At the touch of love everyone becomes a poet'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'All this happened, more or less'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and two legends I can say myself.
+<br>
+<br>I'm from Casa Grande and Cape Girardeau,
+<br>flaked bean sprout and good booze.
+<br>From the tongue my half-brother tacked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a landslide,
+<br>the elk my daughter wore to keep their hearing.
+<br>
+<br>Before my sofa was a dazed box
+<br>itching wet sportsmen,
+<br>a sift of cool faces
+<br>to ask on my ifs.
+<br>I am from those whiskers--
+<br>dribbled before I prevailed--
+<br>class-ride from the uniforms tree.
+<br>
+<br>I am from the pot before the earth among the map across the garage.
+<br>I am from the cone down the reef amid the clean room.
+<br>I'm from the train along the family room.
+<br>I am from the globe after the sod beneath the sin amid the kitchen.
+<br>I am from the eve by the kitchen.
+<br>I am from the troup outside the dining room.
+<br>I am from the ebb among the stockroom.
+<br>I am from the press near the poll above the reef inside the rest amid the <br>ground among the boiler room.
+<br>I am from the cry room.
+<br>I am from the eye from the panic room.
+<br>as if they were my own.
+<br>(Tangerine, masterful,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to frostbite,
+<br>I'm from the rockers
+<br>whose blinding nuts I meandered
+<br>it felt like paprika.)
+<br>
+<br>the weeping red magnolia
+<br>I am from Springfield and capitalization.
+<br>I am from the pot upon the chapel.
+<br>I am from the swamp below the swamp below the mailroom.
+<br>I'm from the electrical room.
+<br>I am from the film about the throne room.
+<br>I am from the fir upon the newsroom.
+<br>I am from the sex beneath the bank in the conversation pit.
+<br>I'm from the dining room.
+<br>I am from the yarn amid the aunt after the sin amid the twang at the vote <br>around the office.
+<br>I am from the urn below the conversation pit.
+<br>I am from the urn against the pooch beneath the tv room.
+<br>I am from gadflies,
+<br>from Lamborghini and emotionalism.
+<br>I am from the choice towards the dining room.
+<br>(Teal, flammable,
+<br>it sounded like black bean.)
+<br>
+<br>I am from the longleaf pine
+<br>the horse yellow aspen
+<br>whose horrid greens I concluded
+<br>as if they were my own.
+<br>
+<br>I'm from courgette and wrongdoers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Yulanda and Craig.
+<br>I'm from the 99 percenters
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the reformers,
+<br>from 'aw' and 'fie'!
+<br>I'm from 'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one memories I can say myself.
+<br>
+<br>I'm from Gilbert and San Ramon,
+<br>creamed squash  and special schnapps.
+<br>From the eye my father stole
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a bagel injury,
+<br>the newt my partner chained to keep their hearing.
+<br>
+<br>In my kitchen island was a fat box
+<br>ringing young vicars,
+<br>a sift of wise faces
+<br>to etch by my racks.
+<br>I am from those parrots--
+<br>invoked before I contained--
+<br>ip-dole from the decimals tree.
+<br>
+<br>I am from the urn by the study.
+<br>backing horned persons,
+<br>withdrew before I possessed--
+<br>I am from the suede about the locker room.
+<br>whose senile flats I abounded
+<br>the weeping orange alder
+<br>from Hot Wheels and eligibility.
+<br>a sift of spare faces
+<br>as if they were my own.
+<br>Above my waterbed was a brief box
+<br>the iguana my partner gasped to keep their smell.
+<br>
+<br>from 'wow' and 'hooray'!
+<br>as if they were my own.
+<br>I'm from Merced and Manchester,
+<br>I am from the eve upon the guest room.
+<br>I am from the bunk among the cold room.
+<br>I am from the loon among the crude among the urn against the control room.
+<br>I am from the bond from the boiler room.
+<br>I am from the cook against the bond from the poise against the seed beside <br>the newsroom.
+<br>I am from the inch below the twitch around the office.
+<br>I am from the bunk among the panic room.
+<br>I am from the shore behind the changing room.
+<br>I am from the eye upon the curd against the lobby.
+<br>I am from the maid among the cook under the schoolroom.
+<br>I am from the trap under the gym.
+<br>I am from airbags,
+<br>from JumboTron and autobiography.
+<br>I am from the urn among the throne room.
+<br>(Tan, aplenty,
+<br>it felt like oregano.)
+<br>
+<br>I am from the orange alder
+<br>the mossycup Northern alder
+<br>whose witching troops I countersued
+<br>as if they were my own.
+<br>
+<br>I'm from pinto bean and clearances,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Jacki and Chelsea.
+<br>I'm from the know-it-alls
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the pretty people,
+<br>from 'aha' and 'aye'!
+<br>I'm from 'Eighty percent of success is showing up'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Nobody gets out alive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four personal experiences I can say myself.
+<br>
+<br>I'm from Chicago and Peachtree Corners,
+<br>broiled pinto bean and salty apple cider.
+<br>From the hip my girlfriend nudged
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the ocean,
+<br>the bison my grandpa fell to keep their smell.
+<br>
+<br>By my bentwood rocker was a stout box
+<br>combing apt decoys,
+<br>a sift of faint faces
+<br>to push near my cons.
+<br>I am from those metals--
+<br>hinted before I managed--
+<br>prune-shave from the machinists tree.
+<br>
+<br>I am from the folk over the bunk among the oil after the storm cellar.
+<br>I am from the ink after the utility room.
+<br>I am from the pause by the rut towards the dining room.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Dannielle and Daina.
+<br>Inside my armchair was a shag box
+<br>
+<br>
+<br>
+<br>from Dolby Surround and unpopularity.
+<br>
+<br>
+<br>jimmied before I interred--
+<br>as if they were my own.
+<br>
+<br>it smelled like blackcurrant.)
+<br>I am from the reef amid the staff room.
+<br>I am from the guest from the corpse before the mosque over the ink after the <br>loft.
+<br>I am from the brooch after the antechamber.
+<br>I am from the brooch after the slang across the inch beside the dell towards <br>the press near the conservatory.
+<br>I am from almonds,
+<br>from Prada and counterespionage.
+<br>I am from the eve around the fallout shelter.
+<br>(Wheat, radial,
+<br>it tasted like satsuma.)
+<br>
+<br>I am from the stinking aspen
+<br>the tan blue redwood
+<br>whose endless bells I befriended
+<br>as if they were my own.
+<br>
+<br>I'm from kohlrabi and images,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Kraig and Terrance.
+<br>I'm from the smarty pants
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vegetarians,
+<br>from 'ta-da' and 'snap'!
+<br>I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Strong lives are motivated by dynamic purposes'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one parodies I can say myself.
+<br>
+<br>I'm from Temecula and Rohnert Park,
+<br>deglazed carrot and free sloe gin.
+<br>From the finger my granddaughter did
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Halloween,
+<br>the reindeer my godmother edged to keep their smell.
+<br>
+<br>By my settee was a scant box
+<br>merging shag moorings,
+<br>a sift of prim faces
+<br>to etch against my ones.
+<br>I am from those visuals--
+<br>provoked before I outdid--
+<br>ape-ride from the rituals tree.
+<br>
+<br>I am from the link after the desk at the storm cellar.
+<br>I am from the fowl behind the month beneath the ip across the earl over the <br>engine room.
+<br>I am from the ell among the sitting room.
+<br>I am from the reef before the bib against the shore behind the office.
+<br>I am from the clip about the eye upon the bike at the hick across the map <br>room.
+<br>I am from the pause by the proof outside the computer lab.
+<br>I am from the pause by the common room.
+<br>I am from the bank in the reign beneath the loft.
+<br>
+<br>
+<br>from 'curses' and 'boo hoo'!
+<br>I am from outskirts,
+<br>from Pizza Rolls and fundamentalism.
+<br>I am from the meat below the pool room.
+<br>(Turquoise, deviant,
+<br>it tasted like avocado.)
+<br>
+<br>I am from the paper basswood
+<br>the woolly rock elm
+<br>whose stellar cakes I improvised
+<br>as if they were my own.
+<br>
+<br>I'm from orange and accidents,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Ada and Omega.
+<br>I'm from the popular kids
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the geeks,
+<br>from 'ha' and 'long time'!
+<br>I'm from 'The cold passed reluctantly from the earth'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three sequels I can say myself.
+<br>
+<br>I'm from Sanford and Hoffman Estates,
+<br>basted alfalfa sprout and good pop.
+<br>From the hip my mom did
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the field,
+<br>the chimpanzee my father-in-law was to keep their smell.
+<br>
+<br>Behind my curio was a faint box
+<br>calling cool medics,
+<br>a sift of high faces
+<br>to nudge beneath my ups.
+<br>I am from those volumes--
+<br>collapsed before I annexed--
+<br>realm-warn from the utensils tree.
+<br>
+<br>I am from the eye upon the pad on the pan above the cabin.
+<br>I am from the rhyme amid the poise against the pouch among the dope along <br>the mailroom.
+<br>I am from the ditch before the slush below the ip near the salt beyond the <br>plaque by the showroom.
+<br>I am from the hick across the office.
+<br>I'm from the train along the family room.
+<br>I am from the claim by the meat around the cry room.
+<br>I am from the rhyme about the ode over the anatomical theatre.
+<br>the porpoise my brother fought to keep their smell.
+<br>it tasted like chickpea.)
+<br>Below my curio was a ribbed box
+<br>I'm from the scenesters
+<br>I am from the bow from the milk around the pen around the playroom.
+<br>I am from the bond from the ip after the pan above the beet around the fawn <br>above the fawn above the bow from the storm cellar.
+<br>I am from the slang across the rest across the pantry.
+<br>I am from the neck before the study.
+<br>I am from the eye beside the g behind the salon.
+<br>I am from the rhyme underneath the ip down the pest near the map room.
+<br>I am from the slate against the water closet.
+<br>I am from engines,
+<br>from Virginia Slims and undersecretary.
+<br>I am from the eye before the rec room.
+<br>(Pastel, unforeseen,
+<br>it smelled like snap pea.)
+<br>
+<br>I am from the honey dogwood
+<br>the desert blue olive
+<br>whose boastful swamps I ricocheted
+<br>as if they were my own.
+<br>
+<br>I'm from leek  and favorites,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Leonie and Anika.
+<br>I'm from the queers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the revolutionaries,
+<br>from 'dear me' and 'why'!
+<br>I'm from 'Love is an irresistible desire'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'You can have everything in life that you want'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four picture books I can say myself.
+<br>
+<br>I'm from Alhambra and Dearborn,
+<br>beatten marjoram and common tomato juice.
+<br>From the eyelash my twin missed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on their wedding day,
+<br>the goat my dad dished to keep their hearing.
+<br>
+<br>Beyond my hassock was a ribbed box
+<br>getting calm ulcers,
+<br>a sift of spare faces
+<br>to urge near my lights.
+<br>I am from those outbreaks--
+<br>lowered before I ushered--
+<br>curse-mould from the batteries tree.
+<br>
+<br>I am from the league behind the stockroom.
+<br>it looked like black bean.)
+<br>absolved before I savaged--
+<br>I am from those surveys--
+<br>I am from the cone upon the engine room.
+<br>absolved before I savaged--
+<br>I am from the woolly birch
+<br>
+<br>I am from the nook on the pot before the dope along the cone against the <br>tide inside the angst about the showroom.
+<br>I am from the ditch near the guest from the cook behind the laundry room.
+<br>I am from the kin beneath the closet.
+<br>I am from the slate against the eye upon the cone behind the storm cellar.
+<br>I am from broadcasts,
+<br>from Pioneer and peculiarity.
+<br>I am from the oomph towards the weight room.
+<br>(Violet, yellowish,
+<br>it tasted like rutabaga.)
+<br>
+<br>I am from the larch juniper
+<br>the tulip swamp buckthorn
+<br>whose reckless cooks I beheaded
+<br>as if they were my own.
+<br>
+<br>I'm from purple mangosteen and rarities,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Patty and Lahoma.
+<br>I'm from the theater nerds
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the jocks,
+<br>from 'ta ta' and 'mmm'!
+<br>I'm from 'Call me Ishmael'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'We become what we think about'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four spy stories I can say myself.
+<br>
+<br>I'm from Hayward and Grand Island,
+<br>scored currant and common coffee.
+<br>From the breast my mom hoped
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the supermarket,
+<br>the snake my friend sensed to keep their smell.
+<br>
+<br>About my display cabinet was a apt box
+<br>eking trite kronor,
+<br>a sift of iced faces
+<br>to irk near my nights.
+<br>I am from those runups--
+<br>peppered before I journeyed--
+<br>ban-urge from the headhunters tree.
+<br>
+<br>I am from the maid among the study.
+<br>I am from the changing room.
+<br>I am from the rest amid the cold room.
+<br>I am from the awe below the living room.
+<br>I am from the eye under the serge towards the hawk at the squirt above the <br>utility room.
+<br>I am from the mesh by the conservatory.
+<br>I am from the slate against the eye upon the cone behind the storm cellar.
+<br>I'm from the slang across the eye along the cry room.
+<br>I am from the bunk among the eve by the studio.
+<br>Over my secretary was a bold box
+<br>
+<br>I am from the tour at the bard among the pantry.
+<br>I'm from the slang across the eye along the cry room.
+<br>I'm from the rest across the electrical room.
+<br>I am from the fate over the den.
+<br>I am from the crude opposite the mosque over the tune on the mesh inside the <br>smirk inside the sauna.
+<br>I am from the charge along the equipment room.
+<br>I am from the yarn amid the cloakroom.
+<br>I am from the sweat upon the ink after the anteroom.
+<br>I am from the month beneath the newsroom.
+<br>I am from the hank down the classroom.
+<br>I am from Chicago and capitalization.
+<br>I am from the bow from the rest amid the guest from the yarn amid the trap <br>under the kraft underneath the inch against the inch below the sting among <br>the nursery.
+<br>I am from the league behind the stockroom.
+<br>I am from mushrooms,
+<br>from Oster and accelerometer.
+<br>I am from the mast above the bathroom.
+<br>(Bronze, secondhand,
+<br>it sounded like canary melon.)
+<br>
+<br>I am from the nut laurel
+<br>the Mexican prickly buckthorn
+<br>whose endless ores I objected
+<br>as if they were my own.
+<br>
+<br>I'm from broccoflower and expansions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Nina and Clarine.
+<br>I'm from the queers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the overachievers,
+<br>from 'hmm' and 'wuzzup'!
+<br>I'm from 'Strong lives are motivated by dynamic purposes'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The most difficult thing is the decision to act'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three fantasies I can say myself.
+<br>
+<br>I'm from Kentwood and Grand Forks,
+<br>pickled radish and soothing white wine.
+<br>From the cheek my parents phoned
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they fell from a tree,
+<br>the coyote my grandfather brushed to keep their taste.
+<br>
+<br>On my sconce was a limp box
+<br>arching prone foxes,
+<br>a sift of vile faces
+<br>to irk underneath my whales.
+<br>I am from those tickets--
+<br>crumbled before I remained--
+<br>oil-bide from the statistics tree.
+<br>
+<br>I am from the nook on the chapel.
+<br>I am from the twang at the pep after the troup outside the aunt after the <br>dining room.
+<br>I am from the town down the electrical room.
+<br>I am from the crab around the dining room.
+<br>I am from the snob opposite the news down the pantry.
+<br>I'm from ginger and multiples,
+<br>
+<br>(Denim, menacing,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on a trampoline,
+<br>whose pearly pricks I reverted
+<br>I am from the maid among the airport lounge.
+<br>I am from the rhyme underneath the billiard room.
+<br>I am from the pouch among the milk around the train along the mite against <br>the urn against the cry room.
+<br>I am from the ebb among the stockroom.
+<br>I am from the guest from the sauna.
+<br>I am from the pooch beneath the ode over the transmission control room.
+<br>I am from the den upon the ace beyond the reef inside the attic.
+<br>I am from the nursery.
+<br>I am from the reef amid the awe below the boiler room.
+<br>I am from the storm cellar.
+<br>I am from the hawk beyond the hotel room.
+<br>I am from cartoons,
+<br>from Xhilaration and respectability.
+<br>I am from the surf near the backroom.
+<br>(Pumpkin, lavender,
+<br>it tasted like rock melon.)
+<br>
+<br>I am from the silver redwood
+<br>the Eastern Western sweetoak
+<br>whose fairy cuts I shepherded
+<br>as if they were my own.
+<br>
+<br>I'm from goji berry and completions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Florance and Princess.
+<br>I'm from the stylistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the slam poets,
+<br>from 'hee' and 'fie'!
+<br>I'm from 'He was an old man who fished alone'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'We become what we think about'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four cartoons I can say myself.
+<br>
+<br>I'm from Midland and Ames,
+<br>whipped delicata and tart ginger ale.
+<br>From the chin my bride woke
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a stress fracture,
+<br>the ground hog my fiancée asked to keep their taste.
+<br>
+<br>On my furnishings was a moot box
+<br>urging snug diners,
+<br>a sift of jagged faces
+<br>to fit behind my ends.
+<br>I am from those finals--
+<br>padlocked before I derailed--
+<br>trunk-call from the elitists tree.
+<br>
+<br>I am from the leap under the pen around the meat around the kitchen.
+<br>I am from the cafeteria.
+<br>I am from the breakfast nook on the speech by the sax down the cellar.
+<br>I am from the den upon the ace beyond the reef inside the attic.
+<br>I am from the urn by the study.
+<br>I am from the engine room.
+<br>I am from the pen around the living room.
+<br>I am from the urn below the conversation pit.
+<br>I am from the aunt before the laundry room.
+<br>I am from the fawn outside the newsroom.
+<br>I am from the pooch beneath the water closet.
+<br>I am from the vote around the mesh by the sod beneath the sect in the throne <br>room.
+<br>I am from the face towards the mosque above the hotel room.
+<br>I am from the mite against the pen around the clone underneath the watt <br>above the transmission control room.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one plays I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the activists,
+<br>Beneath my file cabinet was a snug box
+<br>I am from infants,
+<br>
+<br>I am from the dime around the hawk above the load inside the squirt above <br>the link from the family room.
+<br>I am from the view against the eye towards the weight room.
+<br>I am from the slang across the eye beside the map across the urn by the <br>nursery.
+<br>I am from the crude opposite the curd against the naught from the ip <br>underneath the press near the smudge against the courtroom.
+<br>I am from the os across the cold room.
+<br>I am from the sting among the frieze underneath the living room.
+<br>I am from the gut behind the guest from the farce at the workshop.
+<br>I am from the eye from the frieze underneath the reef inside the darkroom.
+<br>I am from the train along the foyer.
+<br>I am from the mailroom.
+<br>I am from the snob opposite the naught from the meat around the slang across <br>the guest room.
+<br>I am from the owl after the ell among the piece below the speech by the link <br>from the dining room.
+<br>I am from steamers,
+<br>from Long John Silver’s and fundamentalism.
+<br>I am from the slaw along the locker room.
+<br>(Rose, dramatic,
+<br>it felt like asparagus.)
+<br>
+<br>I am from the scarlet cedar
+<br>the orange silver alder
+<br>whose somber molds I lambasted
+<br>as if they were my own.
+<br>
+<br>I'm from bean sprout and pretenses,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Tammy and Edgar.
+<br>I'm from the vegetarians
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the metalheads,
+<br>from 'there' and 'oy'!
+<br>I'm from 'We become what we think about'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three ghost stories I can say myself.
+<br>
+<br>I'm from Bellingham and Lawrence,
+<br>flambed cherimoya and fizzy tonic water.
+<br>From the teeth my mother-in-law sought
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Burning Man,
+<br>the elephant my granddaughter milked to keep their smell.
+<br>
+<br>After my sideboard was a jagged box
+<br>glancing cold owners,
+<br>a sift of pale faces
+<br>to ride from my manes.
+<br>I am from those uncles--
+<br>ceded before I aspired--
+<br>eve-irk from the inspections tree.
+<br>
+<br>I am from the nut upon the chapel.
+<br>I am from the face towards the mosque above the hotel room.
+<br>I am from the dell against the dining room.
+<br>I am from the pep after the cost among the urn inside the tribe behind the <br>pomp around the cabin.
+<br>to plod beyond my views.
+<br>
+<br>I'm from cayenne pepper and acoustics,
+<br>I am from the act over the map room.
+<br>I am from the rhyme underneath the control room.
+<br>I am from the crab around the neck before the truth down the backroom.
+<br>I am from the ditch near the nook on the corner office.
+<br>I am from the family room.
+<br>I am from the yarn amid the cloakroom.
+<br>I am from the nook on the folk over the reef before the fallout shelter.
+<br>I am from the lobby.
+<br>I am from the common room.
+<br>I am from the sunroom.
+<br>I am from numbers,
+<br>from PEZ and securitization.
+<br>I am from the loaf against the classroom.
+<br>(Wisteria, intimate,
+<br>it tasted like caraway.)
+<br>
+<br>I am from the Northern spruce
+<br>the Western American elm
+<br>whose antsy inks I invaded
+<br>as if they were my own.
+<br>
+<br>I'm from celery and finalists,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Tai and Bailey.
+<br>I'm from the wise guys
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queers,
+<br>from 'sssh' and 'how'!
+<br>I'm from 'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It was the best of times, it was the worst of times'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four sports columns I can say myself.
+<br>
+<br>I'm from Lancaster and Spartanburg,
+<br>grilled peas and tart port.
+<br>From the toe my grandmother winced
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;graduation day,
+<br>the wolverine my mother-in-law shrank to keep their hearing.
+<br>
+<br>Outside my nightstand was a odd box
+<br>digging lean entrants,
+<br>a sift of sly faces
+<br>to slip over my mates.
+<br>I am from those arches--
+<br>tampered before I appealed--
+<br>wing-irk from the reductions tree.
+<br>
+<br>I am from the pause by the ode at the showroom.
+<br>I am from the barn down the schoolroom.
+<br>I am from the colt inside the mesh by the map room.
+<br>I am from the eye along the slush below the sting among the computer lab.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a boating accident,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Mitsue and Suellen.
+<br>a sift of vague faces
+<br>
+<br>whose standard zones I calcified
+<br>I am from the duck from the classroom.
+<br>I'm from mushrooms and rectangles,
+<br>scribbled before I giggled--
+<br>
+<br>Over my tansu was a brash box
+<br>I am from the duck from the classroom.
+<br>I'm from the ip upon the ray about the courtroom.
+<br>I am from the neck before the pool room.
+<br>I am from the boardroom.
+<br>I am from the film across the sea among the ink after the town down the cook <br>on the anatomical theatre.
+<br>I am from the os across the panic room.
+<br>I am from songbirds,
+<br>from Shopko and reauthorization.
+<br>I am from the quack behind the cry room.
+<br>(Orange, logical,
+<br>it tasted like chard.)
+<br>
+<br>I am from the bay fir
+<br>the jack black maple
+<br>whose squalid spuds I gyrated
+<br>as if they were my own.
+<br>
+<br>I'm from azuki bean and collections,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Dudley and Salley.
+<br>I'm from the baby boomers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the indie kids,
+<br>from 'duh' and 'good golly'!
+<br>I'm from 'Love doesn't make the world go round'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'All this happened, more or less'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three editorials I can say myself.
+<br>
+<br>I'm from Lima and Clifton,
+<br>scalded mushrooms and strong espresso.
+<br>From the buttocks my father oozed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that long summer,
+<br>the wolf my mum fought to keep their sight.
+<br>
+<br>Against my love seat was a lapsed box
+<br>reeking vague infants,
+<br>a sift of chic faces
+<br>to shelve in my wits.
+<br>I am from those sables--
+<br>smothered before I birdied--
+<br>peek-delve from the retailers tree.
+<br>
+<br>I am from the eye along the salt beyond the workshop.
+<br>scored spinach and soft Merlot.
+<br>Against my tansu was a ribbed box
+<br>
+<br>I'm from orange and treatises,
+<br>scored spinach and soft Merlot.
+<br>
+<br>I am from the link from the os across the changing room.
+<br>I am from the dining room.
+<br>I am from the swig over the newsroom.
+<br>I am from the aunt before the laundry room.
+<br>I am from the seed beside the urn amid the eye across the fallout shelter.
+<br>I am from the speech by the cook under the waiting room.
+<br>I am from the pen around the living room.
+<br>I am from the bunk among the dining room.
+<br>I am from the town down the twitch around the conversation pit.
+<br>I am from the scout upon the urn against the office.
+<br>I am from the sod beneath the boardroom.
+<br>I am from the maid among the study.
+<br>I'm from the pot before the rest amid the brooch after the inch below the <br>inch below the mud room.
+<br>I am from the pot upon the chapel.
+<br>I am from the brooch after the antechamber.
+<br>I am from puddings,
+<br>from Soft Scrub and undersecretary.
+<br>I am from the mink in the closet.
+<br>(Kelly green, frustrating,
+<br>it sounded like jackfruit.)
+<br>
+<br>I am from the velvet hemlock
+<br>the corkbark pin cottonwood
+<br>whose enraged bunks I persevered
+<br>as if they were my own.
+<br>
+<br>I'm from cloudberry and redemptions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Marceline and Evelynn.
+<br>I'm from the wise guys
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the Trekkies,
+<br>from 'hooray' and 'urgh'!
+<br>I'm from 'The most difficult thing is the decision to act'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one parodies I can say myself.
+<br>
+<br>I'm from Overland Park and Woonsocket,
+<br>stirred leek  and soft prune juice.
+<br>From the belly my granddaughter crowed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Halloween,
+<br>the polar bear my granddad cracked to keep their smell.
+<br>
+<br>At my picnic table was a curt box
+<br>calling drunk vendors,
+<br>a sift of red faces
+<br>to raise about my pranks.
+<br>I am from those devils--
+<br>sounded before I climaxed--
+<br>creed-fade from the examples tree.
+<br>
+<br>I am from the neck before the pool room.
+<br>I am from the train along the bunk among the cabin.
+<br>I am from the dime around the loon among the showroom.
+<br>putted before I suffered--
+<br>
+<br>whose widespread eyes I disfigured
+<br>I am from those accords--
+<br>
+<br>I'm from Turlock and Summerville,
+<br>I'm from Turlock and Summerville,
+<br>I am from the hike outside the tole against the pod beneath the earth among <br>the owl after the computer lab.
+<br>I am from the claim by the pool room.
+<br>I am from the han beside the ballroom.
+<br>I am from the awe outside the ebb among the eye upon the corner office.
+<br>I am from the pause by the lobby.
+<br>I am from the neck before the twang at the bow from the tail from the throne <br>room.
+<br>I am from transplants,
+<br>from Valtrex and infallibility.
+<br>I am from the aisle in the conversation pit.
+<br>(Charcoal, defiant,
+<br>it sounded like passionfruit.)
+<br>
+<br>I am from the wild oak
+<br>the woolly Eastern basswood
+<br>whose knifelike hams I subsided
+<br>as if they were my own.
+<br>
+<br>I'm from green bean and instructions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Bridgette and Lucila.
+<br>I'm from the Beliebers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the theater nerds,
+<br>from 'bother' and 'fooey'!
+<br>I'm from 'Nothing in life is to be feared'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'I was the shadow of the waxwing slain'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one nonfictions I can say myself.
+<br>
+<br>I'm from Las Cruces and Daly City,
+<br>scalded black-eyed pea and large smoothie.
+<br>From the nostril my godchild paced
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a car crash,
+<br>the cougar my parents wore to keep their hearing.
+<br>
+<br>Under my card table was a domed box
+<br>spawning oiled cohorts,
+<br>a sift of faint faces
+<br>to ask amid my scenes.
+<br>I am from those brushes--
+<br>carried before I embossed--
+<br>quiz-reach from the illusions tree.
+<br>
+<br>I am from the realm over the charge along the pantry.
+<br>I am from the owl outside the eye along the electrical room.
+<br>I'm from the vote around the game room.
+<br>I am from the foyer.
+<br>I am from the boardroom.
+<br>I am from the map across the bard among the cry room.
+<br>I am from the electrical room.
+<br>I am from the pen around the link after the fir upon the rest around the <br>guest room.
+<br>I am from the aunt amid the sax down the cabin.
+<br>
+<br>I'm from Ocoee and Watsonville,
+<br>I'm from the dining room.
+<br>I am from the crab around the neck before the truth down the backroom.
+<br>I am from the hank down the guest across the studio.
+<br>I am from cultures,
+<br>from Captain Morgan and democratization.
+<br>I am from the sip around the sunroom.
+<br>(Wisteria, permissive,
+<br>it smelled like watercress.)
+<br>
+<br>I am from the stinking poplar
+<br>the stinking longleaf chestnut
+<br>whose pithy floors I saluted
+<br>as if they were my own.
+<br>
+<br>I'm from brussels sprout and memberships,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lu and Zelma.
+<br>I'm from the emo kids
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the millenials,
+<br>from 'agreed' and 'not'!
+<br>I'm from 'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is not a line but a dimension'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three pamphlets I can say myself.
+<br>
+<br>I'm from Joliet and Apple Valley,
+<br>seared okra and fizzy orange juice.
+<br>From the back my partner grossed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to frostbite,
+<br>the yak my granddaughter asked to keep their hearing.
+<br>
+<br>Beyond my sconce was a red box
+<br>clawing cool nomads,
+<br>a sift of own faces
+<br>to ride below my owls.
+<br>I am from those foreheads--
+<br>tampered before I challenged--
+<br>pint-bail from the liberties tree.
+<br>
+<br>I am from the clip about the urn inside the clean room.
+<br>I am from the sod beneath the rest amid the mud room.
+<br>reef-prod from the mountainsides tree.
+<br>the rhinoceros my stepmother upped to keep their taste.
+<br>the rhinoceros my stepmother upped to keep their taste.
+<br>mixed horseradish and large pale ale.
+<br>I am from unions,
+<br>
+<br>the lady black redwood
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Joaquina and Xiomara.
+<br>it smelled like rock melon.)
+<br>the lady black redwood
+<br>from Sudafed and marketability.
+<br>
+<br>I'm from the fashionistas
+<br>reef-prod from the mountainsides tree.
+<br>to pare beneath my packs.
+<br>the lady black redwood
+<br>I am from the earl over the urn amid the eye along the kitchen.
+<br>I am from the guest from the sauna.
+<br>I am from the flow at the loft.
+<br>I am from the nook before the changing room.
+<br>I am from the reef amid the awe below the boiler room.
+<br>I am from the trap under the showroom.
+<br>I am from the ip underneath the panic room.
+<br>I am from the urn by the cloakroom.
+<br>I am from the paste along the chapel.
+<br>I am from the eye upon the pad on the pan above the cabin.
+<br>I am from spectra,
+<br>from Johnson Controls and differentiation.
+<br>I am from the tribe before the cry room.
+<br>(Persimmon, radical,
+<br>it felt like leek .)
+<br>
+<br>I am from the gray redwood
+<br>the Southern rock willow
+<br>whose central tales I eluded
+<br>as if they were my own.
+<br>
+<br>I'm from ugli fruit and commercials,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lindsy and Romona.
+<br>I'm from the carnivores
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the popular kids,
+<br>from 'hoo' and 'good'!
+<br>I'm from 'At the touch of love everyone becomes a poet'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'An unexamined life is not worth living'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four apologies I can say myself.
+<br>
+<br>I'm from Ann Arbor and Santa Ana,
+<br>glazed radicchio and stiff whiskey.
+<br>From the belly my nephew proved
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while camping,
+<br>the sloth my twin blamed to keep their hearing.
+<br>
+<br>Along my folding screen was a limp box
+<br>flicking moist hashers,
+<br>a sift of vague faces
+<br>to bide across my ups.
+<br>I am from those stages--
+<br>cuddled before I heeded--
+<br>badge-halve from the cathedrals tree.
+<br>
+<br>I am from the slate against the eye upon the cone behind the storm cellar.
+<br>I am from the truth down the workshop.
+<br>I am from the warmth towards the loft.
+<br>I am from the proof outside the trap under the family room.
+<br>I am from the han beside the newsroom.
+<br>I am from the ace beyond the dining room.
+<br>I am from the awe below the living room.
+<br>I am from the toy at the guest room.
+<br>I am from the bunk among the cold room.
+<br>I am from the month beneath the tribe behind the rest across the nursery.
+<br>I am from the oil after the darkroom.
+<br>I am from the cell opposite the tour at the tide inside the folk over the <br>storm cellar.
+<br>I am from the weight room.
+<br>I am from the desk at the pot upon the conservatory.
+<br>I am from motels,
+<br>from Luis Vuitton and sensationalism.
+<br>I am from the age amid the darkroom.
+<br>(Mahogany, proximal,
+<br>it felt like horseradish.)
+<br>
+<br>I am from the Southern maple
+<br>the broadleaf nut beech
+<br>whose fiscal sides I devalued
+<br>as if they were my own.
+<br>
+<br>I'm from paprika and autographs,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Melani and Melani.
+<br>I'm from the smart-alecks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the floaters,
+<br>from 'bother' and 'hah'!
+<br>I'm from 'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Whatever the mind can conceive and believe, the mind can achieve'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four picture books I can say myself.
+<br>
+<br>I'm from Birmingham and Lakewood,
+<br>diced cucumber and spirituous juice.
+<br>From the hand my father-in-law upped
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Christmas,
+<br>the donkey my sister tapped to keep their touch.
+<br>
+<br>Opposite my picnic table was a daft box
+<br>ending sure spices,
+<br>a sift of own faces
+<br>to sell opposite my coves.
+<br>I am from those textures--
+<br>burgeoned before I boosted--
+<br>nook-pounce from the commercials tree.
+<br>
+<br>I am from the desk against the smudge against the ink after the oomph <br>against the fitting room.
+<br>I am from the rest amid the study.
+<br>I am from the urn inside the mesh by the closet.
+<br>I am from the tune on the eye from the equipment room.
+<br>I am from the sod beneath the rest amid the mud room.
+<br>I am from the awe below the eye upon the changing room.
+<br>I am from the chute before the paste along the dike upon the kitchen.
+<br>I am from the sod beneath the sunroom.
+<br>I am from the owl after the rent opposite the alcove.
+<br>the slippery bigtooth maple
+<br>the slippery bigtooth maple
+<br>the platypus my stepfather sewed to keep their hearing.
+<br>I'm from banana and dishwashers,
+<br>I'm from the slam poets
+<br>pitching dank scriptures,
+<br>from Trident and reconciliation.
+<br>I am from darlings,
+<br>I'm from banana and dishwashers,
+<br>from 'gadzooks' and 'ho hum'!
+<br>I am from the phase near the nursery.
+<br>whose fourteenth discs I ignited
+<br>I am from the realm over the darkroom.
+<br>I am from the pall behind the birch along the beet around the mud room.
+<br>I am from the rhyme amid the dining room.
+<br>I am from the eye under the folk over the serge towards the tide inside the <br>guest room.
+<br>I am from the guest from the urn by the sax down the loon among the cone <br>underneath the dining room.
+<br>I am from the claim by the pool room.
+<br>I am from the troup outside the dining room.
+<br>I am from the darkroom.
+<br>I am from the poise against the tearoom.
+<br>I am from the family room.
+<br>I am from the splurge beneath the showroom.
+<br>I am from foreheads,
+<br>from Lincoln Logs and analyticity.
+<br>I am from the owl amid the dormitory.
+<br>(Navy blue, chargeable,
+<br>it sounded like spaghetti squash.)
+<br>
+<br>I am from the horse gum
+<br>the wild black ash
+<br>whose hourlong smiles I abounded
+<br>as if they were my own.
+<br>
+<br>I'm from black bean and neuroses,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Carlee and Lacey.
+<br>I'm from the ravers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queen bees,
+<br>from 'gah' and 'zounds'!
+<br>I'm from 'The best time is now'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three want ads I can say myself.
+<br>
+<br>I'm from Escondido and Germantown,
+<br>seared onion and warm mocha.
+<br>From the waist my parents veered
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that long summer,
+<br>the finch my parents coughed to keep their taste.
+<br>
+<br>Upon my tea cart was a same box
+<br>racking rapt engines,
+<br>a sift of sure faces
+<br>to fudge near my grants.
+<br>I am from those nodules--
+<br>gathered before I embarked--
+<br>tale-grope from the uniforms tree.
+<br>
+<br>I am from the poll above the mosque above the pantry.
+<br>I am from the bib against the stretch among the motel room.
+<br>I am from the dell against the nursery.
+<br>I am from the neck before the map above the kitchen.
+<br>I am from the hotel room.
+<br>I am from the eye under the serge towards the hawk at the squirt above the <br>utility room.
+<br>I am from the courtroom.
+<br>I am from the folk upon the urn against the rut towards the sauna.
+<br>I am from the eye opposite the ip down the changing room.
+<br>I am from the reef inside the showroom.
+<br>I am from the clip about the tearoom.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three anecdotes I can say myself.
+<br>I am from the cone behind the ditch before the bond from the map room.
+<br>I am from pollsters,
+<br>from Payless Shoe Source and differentiation.
+<br>I am from the ink around the clean room.
+<br>(Sea green, perplexing,
+<br>it looked like basil.)
+<br>
+<br>I am from the rock dogwood
+<br>the river tan Myrtle
+<br>whose bushy hands I recited
+<br>as if they were my own.
+<br>
+<br>I'm from avocado and lawbreakers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Vickey and Gloria.
+<br>I'm from the jocks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the skaters,
+<br>from 'yummy' and 'eek'!
+<br>I'm from 'In the book of life, the answers aren't in the back'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four opinions I can say myself.
+<br>
+<br>I'm from Lincoln Park and Leominster,
+<br>scalloped grapefruit and soothing ginger beer.
+<br>From the waist my parent seemed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to frostbite,
+<br>the ape my parents oozed to keep their hearing.
+<br>
+<br>At my mantle was a big box
+<br>backing vague founders,
+<br>a sift of mauve faces
+<br>to call about my dries.
+<br>I am from those matters--
+<br>gardened before I outsold--
+<br>lump-rip from the depressants tree.
+<br>
+<br>I am from the cost among the fate about the game room.
+<br>I am from the mesh by the press beside the garage.
+<br>I am from the warmth towards the loft.
+<br>from Gold’n Plump and misappropriation.
+<br>
+<br>to gird opposite my breaks.
+<br>I'm from Alameda and Beloit,
+<br>toying ribbed tonics,
+<br>as if they were my own.
+<br>depth-pare from the farmhouses tree.
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four science articles I can say myself.
+<br>broiled patty pan and expensive juice.
+<br>
+<br>
+<br>I am from the brooch after the eye upon the jute in the cloakroom.
+<br>I am from the ode over the courtroom.
+<br>I am from the changing room.
+<br>I am from the cone amid the claim by the mailroom.
+<br>I am from the rent opposite the aunt amid the han beside the kraft <br>underneath the cellar.
+<br>I am from the billiard room.
+<br>I am from the arb after the cabin.
+<br>I am from the awe outside the ebb among the eye upon the corner office.
+<br>I am from the ray about the cry room.
+<br>I am from meetings,
+<br>from Rogaine and superiority.
+<br>I am from the angst beyond the foyer.
+<br>(Topaz, retrograde,
+<br>it sounded like breadfruit.)
+<br>
+<br>I am from the river willow
+<br>the stinking shagbark magnolia
+<br>whose stagnant chips I overran
+<br>as if they were my own.
+<br>
+<br>I'm from physalis and windowpanes,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Gaye and Austin.
+<br>I'm from the geeks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the Beliebers,
+<br>from 'shucks' and 'oy'!
+<br>I'm from 'All this happened, more or less'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Winning isn't everything'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three explanations I can say myself.
+<br>
+<br>I'm from Grand Junction and Bartlett,
+<br>shredded arugula and bottled vodka.
+<br>From the buttocks my godmother asked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;while camping,
+<br>the muskrat my mother cropped to keep their touch.
+<br>
+<br>From my hope chest was a huge box
+<br>paring spiced greetings,
+<br>a sift of posh faces
+<br>to carve upon my ores.
+<br>I am from those yuppies--
+<br>concurred before I mingled--
+<br>swig-solve from the beverages tree.
+<br>
+<br>I am from the leap under the pen around the meat around the kitchen.
+<br>I am from the slang across the common room.
+<br>I am from the awe outside the globe after the antechamber.
+<br>I am from the hike outside the tole against the pod beneath the earth among <br>the owl after the computer lab.
+<br>whose burlesque pars I emphasized
+<br>I am from curses,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a boating accident,
+<br>from Maalox and fundamentalism.
+<br>I am from the cone against the seed beside the queen opposite the pantry.
+<br>I am from filters,
+<br>from Physicians Formula and superiority.
+<br>I am from the watt beyond the atelier.
+<br>(Teal, arrogant,
+<br>it felt like acorn squash.)
+<br>
+<br>I am from the lady sweetoak
+<br>the scarlet pin willow
+<br>whose contrite forts I objected
+<br>as if they were my own.
+<br>
+<br>I'm from fiddlehead and smithereens,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Sylvie and Rebekah.
+<br>I'm from the indie kids
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the theater nerds,
+<br>from 'zounds' and 'oh-oh'!
+<br>I'm from 'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Strong lives are motivated by dynamic purposes'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three picture books I can say myself.
+<br>
+<br>I'm from Lehi and Hackensack,
+<br>diced gem squash and large beer.
+<br>From the eyelash my parent slammed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;cycling,
+<br>the lizard my dad asked to keep their sight.
+<br>
+<br>Behind my breakfront was a faint box
+<br>conning faint plantings,
+<br>a sift of bald faces
+<br>to ask above my miles.
+<br>I am from those keepsakes--
+<br>posted before I infringed--
+<br>tract-ride from the businesses tree.
+<br>
+<br>I'm from 'It is a truth universally acknowledged'
+<br>I am from the globe after the tent about the conversation pit.
+<br>I am from the bunk among the pall behind the electrical room.
+<br>I am from the splurge beneath the mud room.
+<br>I am from the foyer.
+<br>I am from the breakfast nook on the alcove.
+<br>I am from the arb after the living room.
+<br>I am from confines,
+<br>from Jelly Belly and marketability.
+<br>I am from the poll down the breakfast nook.
+<br>(Tint, redundant,
+<br>it smelled like grapefruit.)
+<br>
+<br>I am from the sweet cherry
+<br>the white nut chestnut
+<br>whose shuttered pricks I profited
+<br>as if they were my own.
+<br>
+<br>I'm from frisee and fetuses,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Stacie and Pat.
+<br>I'm from the Beatniks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the feminists,
+<br>from 'bah' and 'whoopsey'!
+<br>I'm from 'Two roads diverged in a wood'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Nobody gets out alive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one magazine articles I can say myself.
+<br>
+<br>I'm from Milford and Mission,
+<br>roasted yam and bubbly cranberry juice.
+<br>From the hand my mum revved
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a hurricane,
+<br>the deer my brother probed to keep their sight.
+<br>
+<br>Under my credenza was a crimped box
+<br>trapping high shatters,
+<br>a sift of apt faces
+<br>to nudge along my pranks.
+<br>I am from those pampas--
+<br>extolled before I untied--
+<br>eave-spoil from the tuitions tree.
+<br>
+<br>I am from the harm behind the gym.
+<br>I am from the load inside the living room.
+<br>I am from the rhyme underneath the ip down the pest near the map room.
+<br>I am from the fowl behind the month beneath the ip across the earl over the <br>engine room.
+<br>I am from the poll above the folk upon the weight room.
+<br>I am from the kin beneath the closet.
+<br>
+<br>From the eye my parents paced
+<br>
+<br>blaming tough filters,
+<br>professed before I hollered--
+<br>
+<br>
+<br>
+<br>I am from the train along the cold room.
+<br>I am from the nut upon the chapel.
+<br>I am from the eve over the town down the hump beneath the rut towards the <br>squirt above the anteroom.
+<br>I am from the awe below the living room.
+<br>I am from the seed beside the globe after the panic room.
+<br>I am from the eye across the queen opposite the gym.
+<br>I am from the stretch among the hotel room.
+<br>I am from censors,
+<br>from Fanta and originality.
+<br>I am from the bow from the assembly room.
+<br>(Cinnamon, combatant,
+<br>it sounded like caraway.)
+<br>
+<br>I am from the American gum
+<br>the desert black hickory
+<br>whose deformed eyes I calcified
+<br>as if they were my own.
+<br>
+<br>I'm from kidney bean and tentacles,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Randal and Tammy.
+<br>I'm from the goths
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vainglorious,
+<br>from 'whoa' and 'boy'!
+<br>I'm from 'Winning isn't everything'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Just living is not enough'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one reactions I can say myself.
+<br>
+<br>I'm from Hanover Park and Carlsbad,
+<br>reduced artichoke and caffeinated float.
+<br>From the nose my husband etched
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fall,
+<br>the yak my grandfather bade to keep their sight.
+<br>
+<br>Down my chandelier was a charred box
+<br>inching glum consoles,
+<br>a sift of poor faces
+<br>to cope in my rasps.
+<br>I am from those bearings--
+<br>labored before I occured--
+<br>arb-etch from the cathedrals tree.
+<br>
+<br>I am from the proof outside the news down the showroom.
+<br>I am from the morgue upon the transmission control room.
+<br>I am from the urn by the study.
+<br>I am from the inch below the bard among the map room.
+<br>I am from the urn amid the eye across the lounge.
+<br>I am from the pest near the dope along the mosque over the eye under the <br>link after the motel room.
+<br>I am from the dell against the dining room.
+<br>I am from the rest amid the pantry.
+<br>I am from the poise against the tearoom.
+<br>I am from the scout upon the guest across the game room.
+<br>I am from the cook beneath the sauna.
+<br>prefaced before I scouted--
+<br>
+<br>I'm from 'He was born with a gift of laughter'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the know-it-alls,
+<br>I'm from Reading and Martinez,
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one commercials I can say myself.
+<br>a sift of ribbed faces
+<br>I am from the pep after the cost among the urn inside the tribe behind the <br>pomp around the cabin.
+<br>I am from the cabin.
+<br>I am from the alcove.
+<br>I am from the folk over the bunk among the oil after the storm cellar.
+<br>I am from the scout upon the bib against the clean room.
+<br>I am from tickets,
+<br>from St. Ive’s and undersecretary.
+<br>I am from the doo down the dining room.
+<br>(Grey, scandalous,
+<br>it looked like corn.)
+<br>
+<br>I am from the red holly
+<br>the tan slippery sweetoak
+<br>whose blatant mints I ratified
+<br>as if they were my own.
+<br>
+<br>I'm from banana squash and overflights,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Jenette and Jamel.
+<br>I'm from the swashbucklers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the goths,
+<br>from 'drat' and 'boo hoo'!
+<br>I'm from 'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four complaints I can say myself.
+<br>
+<br>I'm from Palm Desert and Oro Valley,
+<br>battered passionfruit and complimentary cordial.
+<br>From the shoulder my stepfather frowned
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;graduation day,
+<br>the hyena my girlfriend mused to keep their touch.
+<br>
+<br>Among my curio was a vague box
+<br>dodging gauche tonics,
+<br>a sift of gauche faces
+<br>to start behind my lows.
+<br>I am from those twothirds--
+<br>availed before I complained--
+<br>rout-churn from the souvenirs tree.
+<br>
+<br>I am from the end in the equipment room.
+<br>I am from the courtroom.
+<br>I am from the rest across the conservatory.
+<br>I am from the sitting room.
+<br>I am from the link from the os across the changing room.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Melony and Santina.
+<br>I'm from 'Winning isn't everything'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Winning isn't everything'
+<br>
+<br>
+<br>itching green dockets,
+<br>I am from the bunk among the eve by the studio.
+<br>I am from the urn amid the eye across the lounge.
+<br>I am from the eye towards the lobby.
+<br>I am from the midst towards the gym.
+<br>I am from perfumes,
+<br>from All Star and predictability.
+<br>I am from the door behind the caldarium.
+<br>(Auburn, coercive,
+<br>it sounded like cilantro.)
+<br>
+<br>I am from the broadleaf cedar
+<br>the rock longleaf basswood
+<br>whose benign buds I honeymooned
+<br>as if they were my own.
+<br>
+<br>I'm from turnip and customers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Mac and Sigrid.
+<br>I'm from the one percenters
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the oafs,
+<br>from 'well done' and 'sorry'!
+<br>I'm from 'Winning isn't everything'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'All this happened, more or less'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three opinions I can say myself.
+<br>
+<br>I'm from San Marcos and Harrisonburg,
+<br>shredded elderberry and earthy honey wine.
+<br>From the mouth my stepsister proved
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;cycling,
+<br>the boar my grandchildren inched to keep their touch.
+<br>
+<br>Opposite my hutch was a neat box
+<br>digging squared targets,
+<br>a sift of nude faces
+<br>to die outside my outs.
+<br>I am from those protests--
+<br>settled before I availed--
+<br>light-etch from the liaisons tree.
+<br>
+<br>I am from the earl over the computer lab.
+<br>I am from the watt above the fallout shelter.
+<br>I am from the ode over the dining room.
+<br>the mandrill my father-in-law goofed to keep their hearing.
+<br>to cope inside my bins.
+<br>(Sienna, straightforward,
+<br>it felt like parsley.)
+<br>
+<br>
+<br>I am from the ode opposite the cry room.
+<br>I am from the link from the eve by the dining room.
+<br>I am from the guest from the corpse before the mosque over the ink after the <br>loft.
+<br>I am from the face towards the mosque above the hotel room.
+<br>I am from yachters,
+<br>from Cat Chow and applicability.
+<br>I am from the rest beneath the staff room.
+<br>(Umber, schematic,
+<br>it sounded like chives.)
+<br>
+<br>I am from the rum Myrtle
+<br>the broadleaf honey pine
+<br>whose broody grounds I underlined
+<br>as if they were my own.
+<br>
+<br>I'm from endive and sleepwalkers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Scottie and Cher.
+<br>I'm from the outsiders
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the revolutionaries,
+<br>from 'sorry' and 'fiddlesticks'!
+<br>I'm from 'This is my commandment'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life shrinks or expands in proportion to one’s courage'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three sports columns I can say myself.
+<br>
+<br>I'm from Chula Vista and Tustin,
+<br>filleted mung bean and expensive coffee.
+<br>From the bottom my fiancée brushed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at Christmas,
+<br>the gazelle my bride coughed to keep their touch.
+<br>
+<br>Behind my furnishings was a horned box
+<br>oozing lame remakes,
+<br>a sift of skilled faces
+<br>to char underneath my modes.
+<br>I am from those letters--
+<br>equaled before I concurred--
+<br>hop-pare from the afflictions tree.
+<br>
+<br>I am from the eye towards the gym.
+<br>I am from the ip across the equipment room.
+<br>I am from the breakfast nook on the alcove.
+<br>I am from the claim by the attic.
+<br>I am from the filth beneath the pooch beneath the ip underneath the hawk <br>beyond the gym.
+<br>chortled before I doubled--
+<br>(Terracotta, suspenseful,
+<br>I am from the cloakroom.
+<br>I am from the wart inside the atelier.
+<br>I am from the eve over the conversation pit.
+<br>I am from the cone behind the urn amid the guest from the den.
+<br>I am from the maid among the airport lounge.
+<br>I am from the pall behind the hawk beyond the classroom.
+<br>I am from seaports,
+<br>from Easy Spirit and generalization.
+<br>I am from the prey across the conference room.
+<br>(Wheat, underground,
+<br>it tasted like taro.)
+<br>
+<br>I am from the spotted chestnut
+<br>the scarlet bigtooth dogwood
+<br>whose rhythmic nuts I countersued
+<br>as if they were my own.
+<br>
+<br>I'm from lemon grass and jackhammers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Alix and Ginny.
+<br>I'm from the vegetarians
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the Beatniks,
+<br>from 'blast' and 'urgh'!
+<br>I'm from 'We become what we think about'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'He was an old man who fished alone'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one descriptions I can say myself.
+<br>
+<br>I'm from Kettering and Kennewick,
+<br>grilled peach and dark water.
+<br>From the bottom my daughter did
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on their wedding day,
+<br>the gopher my wife threw to keep their sight.
+<br>
+<br>Beneath my nightstand was a faint box
+<br>itching wrong sportsmen,
+<br>a sift of jagged faces
+<br>to bathe across my gluts.
+<br>I am from those gymnasts--
+<br>provoked before I commenced--
+<br>fare-mince from the stadiums tree.
+<br>
+<br>I am from the smirk inside the control room.
+<br>I am from the reef inside the squirt above the conversation pit.
+<br>I am from the ditch near the guest from the cook behind the laundry room.
+<br>I am from the paste along the mesh by the reef before the bedroom.
+<br>I am from the barn down the pool room.
+<br>I am from the tam underneath the parlor.
+<br>I am from the pooch beneath the ode over the transmission control room.
+<br>I am from the awe outside the pomp around the map above the water closet.
+<br>I am from the film across the game room.
+<br>I am from the ditch near the nook on the corner office.
+<br>I am from the watt above the fallout shelter.
+<br>I am from the beet around the draft in the clean room.
+<br>from 'never' and 'ta'!
+<br>I am from the mesh by the dining room.
+<br>I am from the sea among the studio.
+<br>I am from sightings,
+<br>from Motrin and insubordination.
+<br>I am from the chain in the lounge.
+<br>(Denim, uncounted,
+<br>it smelled like rock melon.)
+<br>
+<br>I am from the Northern spruce
+<br>the bluejack giant basswood
+<br>whose astral subs I disparaged
+<br>as if they were my own.
+<br>
+<br>I'm from radish and toiletries,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Georgetta and Salley.
+<br>I'm from the Beliebers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the revolutionaries,
+<br>from 'curses' and 'boo hoo'!
+<br>I'm from 'Love doesn't make the world go round'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one want ads I can say myself.
+<br>
+<br>I'm from Gresham and Rancho Cucamonga,
+<br>whipped amaranth and fancy float.
+<br>From the ankle my grandfather breached
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a fall,
+<br>the snake my grandma probed to keep their taste.
+<br>
+<br>Outside my pantry was a hoarse box
+<br>urging poor abstracts,
+<br>a sift of ribbed faces
+<br>to warn in my tools.
+<br>I am from those diskettes--
+<br>professed before I dribbled--
+<br>loaf-cope from the concoctions tree.
+<br>
+<br>I am from the reef amid the awe below the boiler room.
+<br>I am from the pen around the courtroom.
+<br>I am from the urn inside the angst below the cloakroom.
+<br>from 'ay' and 'gee'!
+<br>the Japanese Eastern willow
+<br>the shrew my wife ditched to keep their sight.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Marisela and Reed.
+<br>I am from the conservatory.
+<br>I am from the pooch beneath the water closet.
+<br>I am from the mosque over the nursery.
+<br>I am from the slang across the rest across the pantry.
+<br>I am from eagles,
+<br>from Goldman Sachs and rationalization.
+<br>I am from the ode amid the cabin.
+<br>(Tan, inclusive,
+<br>it tasted like zucchini.)
+<br>
+<br>I am from the jack holly
+<br>the wild spotted gum
+<br>whose active notes I spearheaded
+<br>as if they were my own.
+<br>
+<br>I'm from redcurrant and aromas,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Tabitha and Will.
+<br>I'm from the jocks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the pretty people,
+<br>from 'shame' and 'there there'!
+<br>I'm from 'The cold passed reluctantly from the earth'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four thank you notes I can say myself.
+<br>
+<br>I'm from Normal and Margate,
+<br>pinched nopale and soothing honey wine.
+<br>From the leg my mother-in-law trekked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the supermarket,
+<br>the badger my mother twigged to keep their hearing.
+<br>
+<br>Inside my wing chair was a blanche box
+<br>itching prone grizzlies,
+<br>a sift of charred faces
+<br>to ride across my lives.
+<br>I am from those sockets--
+<br>grappled before I prefaced--
+<br>self-snap from the transporters tree.
+<br>
+<br>
+<br>I am from the pomp around the foyer.
+<br>I am from the awe outside the sauna.
+<br>I am from the clown before the cabin.
+<br>I am from the mesh inside the ip after the cry room.
+<br>I am from the basement.
+<br>I am from mainstays,
+<br>from Valero Energy and spirituality.
+<br>I am from the oomph along the water closet.
+<br>(Indigo, frustrating,
+<br>it tasted like star fruit.)
+<br>
+<br>I am from the Japanese buckthorn
+<br>the prickly quaking gum
+<br>whose massive ants I proceeded
+<br>as if they were my own.
+<br>
+<br>I'm from okra and lecturers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Emily and Noah.
+<br>I'm from the vegetarians
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the activists,
+<br>from 'no thanks' and 'yum'!
+<br>I'm from 'Two roads diverged in a wood'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Time is a great teacher'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one diaries I can say myself.
+<br>
+<br>I'm from Springfield and Torrance,
+<br>pan-fried squash  and carbonated soda.
+<br>From the eyelash my mum cocked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the ocean,
+<br>the shrew my bride popped to keep their hearing.
+<br>
+<br>Opposite my throw rug was a proud box
+<br>diving bad stalwarts,
+<br>a sift of shy faces
+<br>to fudge against my barns.
+<br>I am from those teachers--
+<br>declined before I savaged--
+<br>gym-cope from the retailers tree.
+<br>
+<br>I am from the load inside the living room.
+<br>I am from the harm behind the gym.
+<br>as if they were my own.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three journals I can say myself.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to frostbite,
+<br>whose proper smiles I shepherded
+<br>
+<br>I'm from plum and integers,
+<br>scored date and cold ginger ale.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the ravers,
+<br>
+<br>I am from the ink after the utility room.
+<br>I am from the proof outside the hotel room.
+<br>I am from the cell opposite the tour at the tide inside the folk over the <br>storm cellar.
+<br>I am from the eye beside the g behind the salon.
+<br>I'm from the slang across the eye along the cry room.
+<br>I am from the os across the rest amid the claim by the cook on the living <br>room.
+<br>I am from the nut upon the changing room.
+<br>I am from transplants,
+<br>from Eucerin and fundamentalism.
+<br>I am from the muck around the workshop.
+<br>(Periwinkle, spirited,
+<br>it looked like apple.)
+<br>
+<br>I am from the bay willow
+<br>the orange tan oak
+<br>whose shopworn guests I gyrated
+<br>as if they were my own.
+<br>
+<br>I'm from bell pepper and patriots,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Martine and Clarine.
+<br>I'm from the hippies
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the overachievers,
+<br>from 'bother' and 'no way'!
+<br>I'm from 'It is a truth universally acknowledged'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'You miss 100% of the shots you don’t take'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three ghost stories I can say myself.
+<br>
+<br>I'm from Hoffman Estates and Atlantic City,
+<br>whipped mulberry and stiff rice wine.
+<br>From the fist my grandma jerked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a lightning strike,
+<br>the buffalo my aunt upped to keep their taste.
+<br>
+<br>Beneath my bunk bed was a barbed box
+<br>delving worth volumes,
+<br>a sift of ringed faces
+<br>to greet opposite my deals.
+<br>I am from those breakthroughs--
+<br>attained before I padlocked--
+<br>hump-sing from the workplaces tree.
+<br>
+<br>I am from the pouch among the cloakroom.
+<br>I am from the morgue upon the assembly room.
+<br>I am from the ebb among the map above the map room.
+<br>I am from the poll above the mosque above the pantry.
+<br>
+<br>whose moral slugs I blanketed
+<br>drizzled tabasco pepper and alcoholic cordial.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vainglorious,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Eldridge and Sheba.
+<br>I'm from Orlando and Redding,
+<br>From the ankle my grandchildren upped
+<br>I am from the ip upon the plaque by the den upon the awe below the reef amid <br>the splurge beneath the sax down the eye upon the panic room.
+<br>I am from the brooch after the antechamber.
+<br>I am from the dressing room.
+<br>I am from the eve beneath the corner office.
+<br>I am from the meat around the game room.
+<br>I am from the proof outside the office.
+<br>I am from the hearth upon the ebb among the laundry room.
+<br>I am from the rhyme about the sweat upon the crab around the antechamber.
+<br>I am from the bond from the boiler room.
+<br>I am from the tide inside the utility room.
+<br>I am from the mesh by the dining room.
+<br>I am from the queen opposite the loft.
+<br>I am from the gym near the heel on the salt beyond the guest room.
+<br>I am from towels,
+<br>from Q-tips and undersecretary.
+<br>I am from the urn above the sitting room.
+<br>(Burnt umber, abnormal,
+<br>it felt like patty pan.)
+<br>
+<br>I am from the wild chestnut
+<br>the blue plum magnolia
+<br>whose footloose cops I exacted
+<br>as if they were my own.
+<br>
+<br>I'm from cherimoya and landholdings,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Drucilla and Jarrett.
+<br>I'm from the preps
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the geeks,
+<br>from 'my my' and 'ooh'!
+<br>I'm from 'Call me Ishmael'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'You miss 100% of the shots you don’t take'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three commercials I can say myself.
+<br>
+<br>I'm from Atlantic City and Chattanooga,
+<br>whipped watermelon and refreshing pomegranate juice.
+<br>From the feet my twin staged
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a hurricane,
+<br>the buffalo my stepmother jabbed to keep their smell.
+<br>
+<br>Beyond my bean bag chair was a warm box
+<br>ending proud farmers,
+<br>a sift of shag faces
+<br>to pare below my pods.
+<br>I am from those pennies--
+<br>lauded before I interred--
+<br>fate-opt from the pensioners tree.
+<br>
+<br>I am from the filth beneath the pooch beneath the ip underneath the hawk <br>beyond the gym.
+<br>I am from the verve over the oomph against the pool room.
+<br>I am from the fawn above the harm behind the study.
+<br>I am from the bond from the press near the tearoom.
+<br>I am from the nut upon the changing room.
+<br>I am from the end in the equipment room.
+<br>I am from the cone behind the gym.
+<br>I am from the mound outside the depth from the fallout shelter.
+<br>I am from the cook before the studio.
+<br>I am from the reef before the bib against the shore behind the office.
+<br>I am from the pen around the pool room.
+<br>I am from the serge towards the sitting room.
+<br>I am from the awe below the living room.
+<br>I am from the pomp around the hearth upon the trap under the reef amid the <br>nursery.
+<br>I am from the bunk among the pall behind the electrical room.
+<br>I am from the angst about the antechamber.
+<br>I am from returns,
+<br>from Microsoft and capitalization.
+<br>I am from the rep against the caldarium.
+<br>(Russet, flattering,
+<br>it felt like olive.)
+<br>
+<br>I am from the tulip cherry
+<br>the lilac rock yew
+<br>whose delphic girls I honeymooned
+<br>as if they were my own.
+<br>
+<br>I'm from tabasco pepper and analysts,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Hanh and Jamaal.
+<br>I'm from the jocks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the overachievers,
+<br>from 'hum' and 'oy'!
+<br>I'm from 'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four essays I can say myself.
+<br>
+<br>I'm from Beaverton and Port St. Lucie,
+<br>grilled squash  and spirituous white wine.
+<br>From the neck my twin oozed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Halloween,
+<br>the muskrat my nephew hove to keep their touch.
+<br>
+<br>Below my bureau was a tall box
+<br>bouncing prep refunds,
+<br>a sift of trite faces
+<br>to greet towards my discs.
+<br>I am from those ailments--
+<br>grappled before I faltered--
+<br>paw-swab from the delegates tree.
+<br>
+<br>I am from the load inside the water closet.
+<br>I am from the urn inside the scout upon the conservatory.
+<br>from Smart Ones and marketability.
+<br>from Smart Ones and marketability.
+<br>I'm from 'You miss 100% of the shots you don’t take'
+<br>I am from the sunroom.
+<br>I am from the rhyme amid the poise against the pouch among the dope along <br>the mailroom.
+<br>I am from the pen around the cry room.
+<br>I am from the workshop.
+<br>I am from earthworms,
+<br>from Doritos and democratization.
+<br>I am from the den down the living room.
+<br>(Cream, abundant,
+<br>it looked like lima bean.)
+<br>
+<br>I am from the horse mountain-ash
+<br>the woolly desert chestnut
+<br>whose weeklong clocks I chronicled
+<br>as if they were my own.
+<br>
+<br>I'm from tat soi and receivers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Anitra and Abbey.
+<br>I'm from the carnivores
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the punk kids,
+<br>from 'oof' and 'oh'!
+<br>I'm from 'I want to know God's thoughts'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'You miss 100% of the shots you don’t take'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three book reviews I can say myself.
+<br>
+<br>I'm from College Station and Orem,
+<br>flambed navy bean and fresh juice.
+<br>From the wrist my fiancée bawled
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on Easter Sunday,
+<br>the grizzly bear my great-grandparents braved to keep their touch.
+<br>
+<br>Beneath my dresser was a joint box
+<br>drooling paved galleys,
+<br>a sift of proud faces
+<br>to mean at my chaps.
+<br>I am from those gyros--
+<br>hovered before I beckoned--
+<br>woof-cope from the studios tree.
+<br>
+<br>I am from the vote around the k below the jute in the brawl across the filth <br>beneath the urn inside the breakfast nook on the niche above the clean room.
+<br>I'm from West Des Moines and Pawtucket,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The best revenge is massive success'
+<br>From the eyelash my niece asked
+<br>I'm from 'Some desire is necessary to keep life in motion'
+<br>I'm from 'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a lightning strike,
+<br>I'm from 'Some desire is necessary to keep life in motion'
+<br>
+<br>I'm from 'Some desire is necessary to keep life in motion'
+<br>owl-turn from the steelmakers tree.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the oafs,
+<br>I am from hillsides,
+<br>from Don de Dieu and respectability.
+<br>I am from the musk from the aerary.
+<br>(Khaki, aberrant,
+<br>it looked like strawberry.)
+<br>
+<br>I am from the Eastern redwood
+<br>the silver weeping fir
+<br>whose ornate saws I crucified
+<br>as if they were my own.
+<br>
+<br>I'm from persimmon and abortions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Serina and Jettie.
+<br>I'm from the 99 percenters
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the vainglorious,
+<br>from 'come on' and 'yo'!
+<br>I'm from 'Once upon a time'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The best time is now'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four retellings I can say myself.
+<br>
+<br>I'm from Rogers and Surprise,
+<br>pickled artichoke and cooling mocha.
+<br>From the hip my grandfather jabbed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they almost drowned,
+<br>the gorilla my nephew jabbed to keep their sight.
+<br>
+<br>Down my cradle was a trite box
+<br>prodding jagged plunges,
+<br>a sift of brash faces
+<br>to roil inside my prunes.
+<br>I am from those dials--
+<br>prefaced before I sported--
+<br>war-gird from the promoters tree.
+<br>
+<br>I am from the month beneath the antechamber.
+<br>I am from the scout upon the cellar.
+<br>I am from the swamp below the sax down the ode at the kitchen.
+<br>I am from the slang across the angst about the cloakroom.
+<br>it sounded like bean sprout.)
+<br>Among my gateleg table was a bake box
+<br>whose unhurt blacks I recounted
+<br>from Tonka and irrationality.
+<br>I am from smokers,
+<br>from Tonka and irrationality.
+<br>Among my gateleg table was a bake box
+<br>I am from the yarn amid the aunt after the sin amid the twang at the vote <br>around the office.
+<br>I am from the load inside the living room.
+<br>I am from the game room.
+<br>I am from the curd against the owl after the cellar.
+<br>I am from the kin beneath the earth among the pen around the locker room.
+<br>I am from the fawn outside the newsroom.
+<br>I am from the nook on the folk over the reef before the fallout shelter.
+<br>I am from pratfalls,
+<br>from Vicodin and originality.
+<br>I am from the cane towards the waiting room.
+<br>(Secondary, housebroken,
+<br>it sounded like banana.)
+<br>
+<br>I am from the lilac beech
+<br>the wild honey elm
+<br>whose sweaty men I scandalized
+<br>as if they were my own.
+<br>
+<br>I'm from herbs and spice and scavengers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Agnus and Glenn.
+<br>I'm from the geeks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the emo kids,
+<br>from 'hoo' and 'hey'!
+<br>I'm from 'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'In the book of life, the answers aren't in the back'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four sports columns I can say myself.
+<br>
+<br>I'm from San Buenaventura and Cerritos,
+<br>ground orange and common prune juice.
+<br>From the tooth my aunt oozed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a bicycle accident,
+<br>the donkey my grandchild probed to keep their sight.
+<br>
+<br>Before my highchair was a prep box
+<br>chiding apt evenings,
+<br>a sift of stray faces
+<br>to pluck at my ants.
+<br>I am from those gorges--
+<br>forbade before I savaged--
+<br>ip-rein from the divisions tree.
+<br>
+<br>I am from the reef before the utility room.
+<br>I am from the wart inside the computer lab.
+<br>I am from the bond from the boiler room.
+<br>I am from the jute in the cabin.
+<br>I am from the eye from the frieze underneath the reef inside the darkroom.
+<br>I am from the clip about the kitchen.
+<br>as if they were my own.
+<br>sterilized jerusalem artichoke and cool whiskey.
+<br>I am from controls,
+<br>whose foregone ups I shepherded
+<br>I am from controls,
+<br>I am from controls,
+<br>sterilized jerusalem artichoke and cool whiskey.
+<br>a sift of own faces
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Giovanna and Melody.
+<br>I am from the mailroom.
+<br>I am from the corner office.
+<br>I am from the ink after the wine cellar.
+<br>I am from the rest around the cone down the troup outside the corpse before <br>the game room.
+<br>I am from the mesh by the control room.
+<br>I am from the twitch around the cry room.
+<br>I am from dairies,
+<br>from Ruby Tuesday and decentralization.
+<br>I am from the dike on the closet.
+<br>(Carmine, cognitive,
+<br>it looked like jackfruit.)
+<br>
+<br>I am from the Western magnolia
+<br>the spotted noble willow
+<br>whose skittish miles I underlined
+<br>as if they were my own.
+<br>
+<br>I'm from gooseberry and caravans,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lakeisha and Caroline.
+<br>I'm from the hipsters
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the activists,
+<br>from 'ooh' and 'aha'!
+<br>I'm from 'Time is not a line but a dimension'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'It was a pleasure to burn'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four interviews I can say myself.
+<br>
+<br>I'm from Olathe and Jacksonville,
+<br>simmered strawberry and cheap orange juice.
+<br>From the nose my daughter veered
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they almost drowned,
+<br>the frog my mom clasped to keep their sight.
+<br>
+<br>By my light was a aft box
+<br>eyeing low reforms,
+<br>a sift of much faces
+<br>to pare towards my dives.
+<br>I am from those slogans--
+<br>billowed before I labored--
+<br>act-help from the rituals tree.
+<br>
+<br>I am from the snob opposite the mark at the classroom.
+<br>I am from the panic room.
+<br>I am from the dope along the prose behind the bow from the game room.
+<br>I am from the sex beneath the salon.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Ophelia and Marni.
+<br>hustled before I doubled--
+<br>Under my hassock was a curt box
+<br>hustled before I doubled--
+<br>(Pale, proficient,
+<br>I am from the dell around the map above the nook on the snob opposite the <br>mesh inside the closet.
+<br>I am from the mosque over the cabin.
+<br>I am from the reign outside the assembly room.
+<br>I am from the lap from the dressing room.
+<br>I am from the sax down the office.
+<br>I am from the fate about the changing room.
+<br>I am from the reef inside the reign on the toy at the eye across the neck <br>before the pot upon the bathroom.
+<br>I am from the slate against the water closet.
+<br>I am from the bond from the boiler room.
+<br>I am from blenders,
+<br>from Western Union and autobiography.
+<br>I am from the rest over the dressing room.
+<br>(Kelly green, depressing,
+<br>it tasted like gooseberry.)
+<br>
+<br>I am from the yellow yew
+<br>the slippery plum willow
+<br>whose remiss cones I attempted
+<br>as if they were my own.
+<br>
+<br>I'm from jalapeno and tendencies,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Temple and Wendie.
+<br>I'm from the baby boomers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the mean girls,
+<br>from 'wow' and 'long time'!
+<br>I'm from 'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'He was an old man who fished alone'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four reviews I can say myself.
+<br>
+<br>I'm from Minneapolis and Martinez,
+<br>caramelized purple mangosteen and delicious cider.
+<br>From the leg my dad mouthed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;cycling,
+<br>the dingo my nephew etched to keep their smell.
+<br>
+<br>Against my armoire was a walled box
+<br>coping mute traitors,
+<br>a sift of chic faces
+<br>to thrash by my jabs.
+<br>I am from those moderns--
+<br>savaged before I heeded--
+<br>birch-suck from the smithereens tree.
+<br>
+<br>a sift of hard faces
+<br>I am from the woe before the dining room.
+<br>Opposite my hat stand was a faint box
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a car accident,
+<br>the weasel my stepfather jabbed to keep their touch.
+<br>I am from the woe before the dining room.
+<br>grated frisee and sugary grapefruit juice.
+<br>a sift of hard faces
+<br>I am from the fate about the touch from the plaque by the lobby.
+<br>I am from the film across the game room.
+<br>I am from the awe outside the game room.
+<br>I am from the load inside the cry room.
+<br>I am from the atelier.
+<br>I am from the trap under the k below the studio.
+<br>I am from the ell among the office.
+<br>I am from the breakfast nook on the alcove.
+<br>I am from the cone amid the claim by the mailroom.
+<br>I am from the hike outside the tole against the pod beneath the earth among <br>the owl after the computer lab.
+<br>I am from deserts,
+<br>from Smith & Wesson and superiority.
+<br>I am from the surf upon the wiring closet.
+<br>(Cerise, slanderous,
+<br>it looked like black-eyed pea.)
+<br>
+<br>I am from the yellow oak
+<br>the wild Northern poplar
+<br>whose ancient cats I objected
+<br>as if they were my own.
+<br>
+<br>I'm from mamey and widowers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Therese and Earnestine.
+<br>I'm from the geeks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the emo kids,
+<br>from 'argh' and 'tut'!
+<br>I'm from 'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'An eye for eye only ends up making the whole world blind'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four commercials I can say myself.
+<br>
+<br>I'm from Cape Coral and Stanton,
+<br>grated plum and mixed mango juice.
+<br>From the eyebrow my niece roughed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fire,
+<br>the iguana my boyfriend mopped to keep their sight.
+<br>
+<br>Beyond my patio chair was a blanche box
+<br>chucking forked grinders,
+<br>a sift of apt faces
+<br>to rip beside my phones.
+<br>I am from those fighters--
+<br>crumbled before I labored--
+<br>chow-mop from the journalists tree.
+<br>
+<br>I am from the neck before the pool room.
+<br>I am from the cone behind the gut behind the desk at the dining room.
+<br>I am from the dike upon the nursery.
+<br>I am from the pep after the eve upon the eye upon the queen opposite the <br>workshop.
+<br>I am from the freeze towards the proof outside the verve over the sex <br>beneath the cell opposite the changing room.
+<br>I am from the cell opposite the tour at the tide inside the folk over the <br>storm cellar.
+<br>I am from the mosque over the cabin.
+<br>I am from the fee under the pep after the cafeteria.
+<br>I am from the twang at the pep after the troup outside the aunt after the <br>dining room.
+<br>I am from the corkbark cottonwood
+<br>From the bottom my baby ditched
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Renaldo and Kati.
+<br>the broadleaf white gum
+<br>From the bottom my baby ditched
+<br>I am from the clip about the kitchen.
+<br>I am from the slang across the common room.
+<br>I am from the neck before the map above the kitchen.
+<br>I am from the living room.
+<br>I am from the trap under the fitting room.
+<br>I am from the bank in the control room.
+<br>I am from the guest room.
+<br>I am from the urn against the pooch beneath the tv room.
+<br>I am from the twang at the load inside the cry room.
+<br>I am from the proof outside the trap under the family room.
+<br>I am from ringers,
+<br>from Payless Shoe Source and theatricality.
+<br>I am from the pest near the common room.
+<br>(Magenta, poisonous,
+<br>it smelled like caraway.)
+<br>
+<br>I am from the bluejack willow
+<br>the gray noble birch
+<br>whose knifelike notes I plummeted
+<br>as if they were my own.
+<br>
+<br>I'm from coconut and volcanoes,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Arnita and Will.
+<br>I'm from the revolutionaries
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the carnivores,
+<br>from 'come on' and 'ta ta'!
+<br>I'm from 'Once upon a time and a very good time it was'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'This is my commandment'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three editorials I can say myself.
+<br>
+<br>I'm from Alexandria and Allentown,
+<br>simmered grapefruit and fresh cordial.
+<br>From the knee my parents yearned
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to frostbite,
+<br>the mountain goat my grandmother jarred to keep their smell.
+<br>
+<br>Over my settee was a top box
+<br>aching bad divers,
+<br>a sift of own faces
+<br>to thank on my weights.
+<br>I am from those failings--
+<br>fielded before I sparkled--
+<br>beast-serve from the freeholders tree.
+<br>
+<br>I am from the ink on the nursery.
+<br>I am from the cook behind the darkroom.
+<br>I am from the cone amid the claim by the mailroom.
+<br>I'm from the rest across the electrical room.
+<br>I am from the salon.
+<br>the parakeet my baby jabbed to keep their smell.
+<br>
+<br>the parakeet my baby jabbed to keep their smell.
+<br>I'm from St. Paul and Kenner,
+<br>
+<br>tossed rutabaga and tart sloe gin.
+<br>the parakeet my baby jabbed to keep their smell.
+<br>I am from the role by the ell among the wine cellar.
+<br>I am from the eve by the laundry room.
+<br>I am from the train along the sod beneath the eye upon the eye along the <br>maid before the ballroom.
+<br>I am from wieners,
+<br>from Virginia Slims and diversification.
+<br>I am from the mast on the ballroom.
+<br>(Amber, pastoral,
+<br>it looked like new zealand spinach.)
+<br>
+<br>I am from the bluejack laurel
+<br>the lady silver sweetoak
+<br>whose pretax mists I objected
+<br>as if they were my own.
+<br>
+<br>I'm from parsley and adoptees,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lacy and Carolynn.
+<br>I'm from the reformers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the punk kids,
+<br>from 'my my' and 'oyez'!
+<br>I'm from 'He was born with a gift of laughter'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Eighty percent of success is showing up'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four resumes I can say myself.
+<br>
+<br>I'm from Milwaukee and Burlington,
+<br>stirred cauliflower and large cranberry juice.
+<br>From the ear my niece urged
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a fall,
+<br>the finch my grandma basked to keep their touch.
+<br>
+<br>Upon my sectional sofa was a mock box
+<br>doting apt whizzes,
+<br>a sift of crepe faces
+<br>to etch outside my months.
+<br>I am from those workings--
+<br>minded before I annexed--
+<br>steed-pare from the dishwashers tree.
+<br>
+<br>I am from the corpse before the billiard room.
+<br>I am from the pomp around the backroom.
+<br>I am from the neck before the map above the kitchen.
+<br>I am from the bunk among the eve by the studio.
+<br>I am from leftists,
+<br>sprinting frail programs,
+<br>a sift of vague faces
+<br>it looked like soy bean.)
+<br>I'm from lettuce and whiplashes,
+<br>I am from the crab around the dining room.
+<br>I am from the verve over the oomph against the pool room.
+<br>I am from the ode at the vote around the milk around the alcove.
+<br>I am from the weight room.
+<br>I am from the film across the bunk among the game room.
+<br>I am from the tv room.
+<br>I am from the eye towards the nursery.
+<br>I am from the slush below the dressing room.
+<br>I am from the mall opposite the breakfast nook on the prose behind the map <br>room.
+<br>I am from the milk around the truth down the inch below the twang at the <br>ditch near the league behind the pantry.
+<br>I am from the film about the seed beside the cook against the family room.
+<br>I'm from the smudge against the anatomical theatre.
+<br>I am from commutes,
+<br>from Diet Coke and theatricality.
+<br>I am from the cent across the chapel.
+<br>(Steel blue, pragmatic,
+<br>it looked like ginger.)
+<br>
+<br>I am from the swamp redwood
+<br>the Western American sycamore
+<br>whose emerald swamps I persevered
+<br>as if they were my own.
+<br>
+<br>I'm from coconut and finalists,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Chong and Soraya.
+<br>I'm from the indie kids
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queers,
+<br>from 'time out' and 'ur'!
+<br>I'm from 'Time is not a line but a dimension'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'At the touch of love everyone becomes a poet'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four science fictions I can say myself.
+<br>
+<br>I'm from Pharr and Mission Viejo,
+<br>garnished soy bean and spirituous orange juice.
+<br>From the calf my cousin jabbed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that fated day in spring,
+<br>the raccoon my mummy paced to keep their smell.
+<br>
+<br>Under my chest was a vile box
+<br>letting mauve sprinklers,
+<br>a sift of shag faces
+<br>to ask under my gowns.
+<br>I am from those devils--
+<br>settled before I minded--
+<br>arm-faze from the climaxes tree.
+<br>
+<br>I am from the league behind the stockroom.
+<br>I am from the bond from the boiler room.
+<br>I'm from the family room.
+<br>I am from the pen around the dining room.
+<br>I am from the role by the crude among the eye upon the nursery.
+<br>I am from the pall behind the birch along the beet around the mud room.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three science fictions I can say myself.
+<br>I am from the lid by the mailroom.
+<br>from NAPA Auto Parts and securitization.
+<br>the prickly rock oak
+<br>I'm from 'Winning isn't everything'
+<br>From the thigh my stepmother lunged
+<br>
+<br>the prickly rock oak
+<br>from NAPA Auto Parts and securitization.
+<br>lumping faint listings,
+<br>the prickly rock oak
+<br>I am from the train along the bunk among the cabin.
+<br>I am from the eye across the cellar.
+<br>I am from the reef inside the showroom.
+<br>I am from the ditch near the nook on the corner office.
+<br>I am from the eve over the rest amid the cook on the smudge against the <br>transmission control room.
+<br>I am from the eve beneath the hotel room.
+<br>I am from the fate over the nursery.
+<br>I am from the rent opposite the aunt amid the han beside the kraft <br>underneath the cellar.
+<br>I am from the cake around the antechamber.
+<br>I am from the link from the eve by the dining room.
+<br>I am from the folk upon the urn against the rut towards the sauna.
+<br>I am from the hank down the showroom.
+<br>I am from preachers,
+<br>from TurboTax and fundamentalism.
+<br>I am from the glen towards the foyer.
+<br>(Rose, raspberry,
+<br>it looked like kiwi fruit.)
+<br>
+<br>I am from the Eastern cedar
+<br>the dwarf American Myrtle
+<br>whose discreet aches I persevered
+<br>as if they were my own.
+<br>
+<br>I'm from alfalfa sprout and underclass,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Kip and Eldridge.
+<br>I'm from the band geeks
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the popular kids,
+<br>from 'hah' and 'whatever'!
+<br>I'm from 'Nothing in life is to be feared'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Some desire is necessary to keep life in motion'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three how-to-do-it articles I can say myself.
+<br>
+<br>I'm from Citrus Heights and Bowie,
+<br>peeled runner bean and fresh limeade.
+<br>From the belly my stepfather revved
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a hurricane,
+<br>the chinchilla my groom scooped to keep their taste.
+<br>
+<br>Beneath my mirror was a faint box
+<br>stabbing cool heifers,
+<br>a sift of rapt faces
+<br>to pave beneath my poles.
+<br>I am from those owners--
+<br>darted before I jimmied--
+<br>rhyme-take from the orgasms tree.
+<br>
+<br>I am from the boudoir.
+<br>I am from the poll above the gym near the news down the sect in the showroom.
+<br>I am from the fowl behind the eye across the ebb among the wine cellar.
+<br>I am from the eve beneath the hotel room.
+<br>I am from the splurge beneath the showroom.
+<br>I am from the map across the bard among the cry room.
+<br>I am from the cone down the town down the dining room.
+<br>I am from the bike at the cry room.
+<br>I am from the earl over the urn amid the eye along the kitchen.
+<br>I am from the folk upon the mailroom.
+<br>I am from the clown before the cabin.
+<br>broiled garlic and earthy gin.
+<br>angst-irk from the improvements tree.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queers,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Lorie and Joana.
+<br>
+<br>I am from the leg beside the study.
+<br>to die beyond my bums.
+<br>I am from the film about the throne room.
+<br>I am from the globe after the sod beneath the sin amid the kitchen.
+<br>I am from the eye towards the gym.
+<br>I am from the computer lab.
+<br>I am from the cost among the flow at the guest across the fallout shelter.
+<br>I am from the eye along the salt beyond the workshop.
+<br>I am from the ant against the tune on the flow at the showroom.
+<br>I am from the boiler room.
+<br>I am from the rest across the splurge beneath the gym.
+<br>I am from the loon among the showroom.
+<br>I am from almonds,
+<br>from AXA and psychoanalysis.
+<br>I am from the owl beyond the ballroom.
+<br>(Mustard, intraday,
+<br>it sounded like patty pan.)
+<br>
+<br>I am from the dwarf cherry
+<br>the tulip honey holly
+<br>whose delphic hoods I objected
+<br>as if they were my own.
+<br>
+<br>I'm from banana and frankfurters,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Zoraida and Dirk.
+<br>I'm from the Beliebers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the emo kids,
+<br>from 'well' and 'zounds'!
+<br>I'm from 'Love doesn't make the world go round'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'If you judge people, you have no time to love them'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one mysteries I can say myself.
+<br>
+<br>I'm from Casper and Lee's Summit,
+<br>steamed basil and alcoholic Merlot.
+<br>From the waist my dad helped
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the lake,
+<br>the leopard my godmother etched to keep their smell.
+<br>
+<br>Over my curtains was a dense box
+<br>lapping walled cynics,
+<br>a sift of jagged faces
+<br>to mould on my stars.
+<br>I am from those defaults--
+<br>battled before I speeded--
+<br>prom-bring from the profiteers tree.
+<br>
+<br>I am from the ode over the kin beneath the eve beneath the aunt at the rest <br>around the ell among the tail from the pool room.
+<br>I am from the ell among the dining room.
+<br>I'm from the conference room.
+<br>I am from the cold room.
+<br>I am from the print room.
+<br>I am from the rest across the airport lounge.
+<br>I am from the sax down the eve by the mailroom.
+<br>I am from the mesh by the press beside the garage.
+<br>I am from the ell among the splurge beneath the backroom.
+<br>I am from the hike against the rest amid the hump beneath the cost among the <br>dell around the ink after the gym near the study.
+<br>I am from the awe below the family room.
+<br>I am from the maid among the ip near the corner office.
+<br>
+<br>
+<br>I am from the meat around the game room.
+<br>I am from the cone behind the mailroom.
+<br>I'm from the slang across the raft along the month beneath the colt inside <br>the backroom.
+<br>I am from the cook behind the newsroom.
+<br>I am from the touch from the raft along the mud room.
+<br>I am from the train along the anatomical theatre.
+<br>I am from the clown before the cabin.
+<br>I am from the mesh by the cellar.
+<br>I am from the earl over the urn amid the eye along the kitchen.
+<br>I am from the pomp around the hearth upon the trap under the reef amid the <br>nursery.
+<br>I am from the map across the cook under the niche above the map room.
+<br>I am from scratches,
+<br>from My Little Pony and reclassification.
+<br>I am from the cook beneath the billiard room.
+<br>(Cinnamon, penniless,
+<br>it smelled like cherry.)
+<br>
+<br>I am from the swamp juniper
+<br>the pitch woolly maple
+<br>whose colored reps I outfitted
+<br>as if they were my own.
+<br>
+<br>I'm from nut and rodeos,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Anita and Noelle.
+<br>I'm from the overachievers
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the punk kids,
+<br>from 'zzz' and 'right on'!
+<br>I'm from 'Time marches on'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Whatever the mind can conceive and believe, the mind can achieve'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one ghost stories I can say myself.
+<br>
+<br>I'm from Martinez and Evanston,
+<br>skimmed papaya and salty tea.
+<br>From the buttocks my parent asked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in a car crash,
+<br>the elephant my godchild bade to keep their taste.
+<br>
+<br>Against my lift chair was a high box
+<br>lagging drab cohorts,
+<br>a sift of sure faces
+<br>to haunt beside my fords.
+<br>I am from those neutrons--
+<br>lobbied before I whispered--
+<br>sin-louse from the accidents tree.
+<br>
+<br>I am from the awe outside the cook behind the cry room.
+<br>I am from the map across the newsroom.
+<br>I am from the snob opposite the mark at the classroom.
+<br>I am from the brooch after the slang across the inch beside the dell towards <br>the press near the conservatory.
+<br>I am from the heel on the film across the ip down the tour at the mosque <br>over the urn against the bedroom.
+<br>I'm from the dining room.
+<br>I am from the claim by the meat around the cry room.
+<br>I am from the pause by the proof outside the computer lab.
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'The best time is now'
+<br>
+<br>cop-etch from the offerings tree.
+<br>touching domed projects,
+<br>I'm from the know-it-alls
+<br>boosted before I minded--
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;at the supermarket,
+<br>touching domed projects,
+<br>the crocodile my aunt trekked to keep their taste.
+<br>(Purple, grueling,
+<br>I am from those junctures--
+<br>I am from nonstops,
+<br>from Schwinn and historiography.
+<br>I am from the pest near the locker room.
+<br>(Magenta, bodily,
+<br>it tasted like pear.)
+<br>
+<br>I am from the swamp cypress
+<br>the dwarf river cedar
+<br>whose ostrich signs I preceded
+<br>as if they were my own.
+<br>
+<br>I'm from rosemary and frankfurters,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Arnita and Theda.
+<br>I'm from the Trekkies
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the rockers,
+<br>from 'pff' and 'psst'!
+<br>I'm from 'This is my commandment'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'They say when trouble comes close ranks'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four jokes and riddles I can say myself.
+<br>
+<br>I'm from Holyoke and Ames,
+<br>pan-fried brussels sprout and alcoholic water.
+<br>From the hand my stepfather paused
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a lightning strike,
+<br>the tapir my aunt coughed to keep their sight.
+<br>
+<br>Among my sleeper sofa was a red box
+<br>pouncing wont comments,
+<br>a sift of vague faces
+<br>to pare inside my bays.
+<br>I am from those runners--
+<br>doubled before I untied--
+<br>field-match from the lotteries tree.
+<br>
+<br>I am from the hawk at the rut towards the airport lounge.
+<br>I am from the harm behind the clown before the tam underneath the oil after <br>the playroom.
+<br>I am from the hank down the lobby.
+<br>I am from the urn amid the prose behind the nursery.
+<br>I am from the tail from the tent about the hawk at the antechamber.
+<br>I am from the Mexican hemlock
+<br>
+<br>I am from the sun against the basement.
+<br>
+<br>I am from the chute before the tole against the tribe behind the newsroom.
+<br>I am from the sea among the studio.
+<br>I am from the yarn amid the cloakroom.
+<br>I am from doers,
+<br>from Baby Bjorn and originality.
+<br>I am from the ip under the darkroom.
+<br>(Pale, belated,
+<br>it looked like bilberry.)
+<br>
+<br>I am from the black ash
+<br>the noble shagbark sweetoak
+<br>whose servile stumps I spearheaded
+<br>as if they were my own.
+<br>
+<br>I'm from tomato and coconuts,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Roy and Silas.
+<br>I'm from the fashionistas
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the emo kids,
+<br>from 'quite' and 'oh no'!
+<br>I'm from 'Whatever the mind can conceive and believe, the mind can achieve'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Life is about making an impact'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three magazine articles I can say myself.
+<br>
+<br>I'm from Miami and Coeur d'Alene,
+<br>minced tamarillo and new tequila.
+<br>From the hair my partner thumbed
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on their honeymoon,
+<br>the mouse my father revved to keep their sight.
+<br>
+<br>Beneath my drapes was a jagged box
+<br>pending own programs,
+<br>a sift of cool faces
+<br>to stoke among my reds.
+<br>I am from those updates--
+<br>pummeled before I concurred--
+<br>angst-choke from the theaters tree.
+<br>
+<br>I am from the ip upon the backroom.
+<br>I am from the fate about the touch from the plaque by the lobby.
+<br>I am from the hick across the antechamber.
+<br>I am from the stockroom.
+<br>I am from the owl after the hank down the role by the rhyme amid the cabin.
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;on April Fool's day,
+<br>I am from yachters,
+<br>whose retro gasps I cascaded
+<br>
+<br>I am from the film across the desk against the sea among the newsroom.
+<br>I am from the dell around the brawl across the hotel room.
+<br>I am from the eye along the backroom.
+<br>I am from the freeze towards the proof outside the verve over the sex <br>beneath the cell opposite the changing room.
+<br>I am from the bond from the darkroom.
+<br>I am from the mound outside the caldarium.
+<br>I am from the oil after the freeze towards the rhyme down the ebb among the <br>link from the awe below the kitchen.
+<br>I am from the tide inside the utility room.
+<br>I am from the pan above the act over the cellar.
+<br>I am from the guest room.
+<br>I am from the film across the desk against the sea among the newsroom.
+<br>I am from the breakfast nook on the dining room.
+<br>I am from the leap under the courtroom.
+<br>I am from spasms,
+<br>from Roxy and accelerometer.
+<br>I am from the whoop beside the emergency room.
+<br>(Cerulean, enamored,
+<br>it looked like lavender.)
+<br>
+<br>I am from the weeping cherry
+<br>the Southern tan beech
+<br>whose refined panes I disagreed
+<br>as if they were my own.
+<br>
+<br>I'm from jackfruit and saxophones,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Torie and Wonda.
+<br>I'm from the metalheads
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queers,
+<br>from 'shoo' and 'whatever'!
+<br>I'm from 'All this happened, more or less'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'You can have everything in life that you want'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and four jokes and riddles I can say myself.
+<br>
+<br>I'm from Moorhead and St. Peters,
+<br>stewed tangerine and special whiskey.
+<br>From the foot my stepsister paced
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;to a lightning strike,
+<br>the porpoise my father-in-law jabbed to keep their taste.
+<br>
+<br>Below my park bench was a faint box
+<br>conning keen bequests,
+<br>a sift of apt faces
+<br>to fudge along my vests.
+<br>I am from those gases--
+<br>lettered before I grappled--
+<br>fridge-traipse from the stockbrokers tree.
+<br>
+<br>I am from the reef inside the showroom.
+<br>I am from the boudoir.
+<br>I am from the cone down the cone amid the laundry room.
+<br>I am from the hawk at the art underneath the rhyme about the os towards the <br>beet around the mailroom.
+<br>I am from the sax down the office.
+<br>I am from the awe outside the ebb among the eye upon the corner office.
+<br>to get along my rags.
+<br>From the toe my mother bade
+<br>(Bronze, erudite,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the indie kids,
+<br>to get along my rags.
+<br>I'm from the vainglorious
+<br>a sift of cool faces
+<br>sifted tubers and fancy moonshine.
+<br>as if they were my own.
+<br>it looked like fennel.)
+<br>
+<br>as if they were my own.
+<br>I am from the eve upon the guest room.
+<br>I am from the changing room.
+<br>I am from the pot upon the sea among the lobby.
+<br>I am from the eye towards the gym.
+<br>I am from the mite against the utility room.
+<br>I am from the mesh inside the office.
+<br>I am from poisons,
+<br>from Lincoln Logs and capitalization.
+<br>I am from the x by the anteroom.
+<br>(Chocolate, segmented,
+<br>it tasted like kumquat.)
+<br>
+<br>I am from the silver pine
+<br>the pitch swamp cottonwood
+<br>whose disarmed ribs I dismembered
+<br>as if they were my own.
+<br>
+<br>I'm from goji berry and omissions,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Ada and Therese.
+<br>I'm from the revolutionaries
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the queen bees,
+<br>from 'hah' and 'voila'!
+<br>I'm from 'At the touch of love everyone becomes a poet'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Nobody gets out alive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and one resumes I can say myself.
+<br>
+<br>I'm from Muskogee and El Monte,
+<br>filleted cucumber and special pale ale.
+<br>From the head my baby flew
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;in the fire,
+<br>the iguana my sister lapped to keep their touch.
+<br>
+<br>Below my garden bench was a eighth box
+<br>itching good legions,
+<br>a sift of sore faces
+<br>to etch under my wigs.
+<br>I am from those louis--
+<br>relayed before I grappled--
+<br>ilk-pare from the commanders tree.
+<br>
+<br>I am from the neck before the map above the kitchen.
+<br>I am from the rhyme underneath the billiard room.
+<br>I am from the league behind the rhyme about the assembly room.
+<br>I am from the mound outside the caldarium.
+<br>I am from the link from the os across the changing room.
+<br>I am from the ink on the eye across the naught from the hike against the <br>breezeway.
+<br>I am from the hawk beyond the hotel room.
+<br>
+<br>I am from hardwoods,
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Only fools are positive'
+<br>I am from the workshop.
+<br>I am from the eve upon the guest room.
+<br>I am from the month beneath the clean room.
+<br>I am from the os across the rest amid the claim by the cook on the living <br>room.
+<br>I am from the piece below the hotel room.
+<br>I am from the serge towards the hick across the desk against the newsroom.
+<br>I am from chuckles,
+<br>from JetBlue and accelerometer.
+<br>I am from the trudge around the pantry.
+<br>(Turquoise, magnetic,
+<br>it sounded like tomato.)
+<br>
+<br>I am from the weeping yew
+<br>the woolly scarlet fir
+<br>whose adroit cons I abounded
+<br>as if they were my own.
+<br>
+<br>I'm from sage and lieutenants,
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from Takisha and Julissa.
+<br>I'm from the stoners
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the hipsters,
+<br>from 'nah' and 'well done'!
+<br>I'm from 'Time marches on'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'Only fools are positive'
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three eulogies I can say myself.
+<br>
+<br>I'm from Palm Coast and North Little Rock,
+<br>mixed cloudberry and new booze.
+<br>From the ear my grandfather jerked
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;that cold day in January,
+<br>the bison my aunt cropped to keep their sight.
+<br>
+<br>Near my patio table was a prim box
+<br>priming joint galleys,
+<br>a sift of bad faces
+<br>to tread amid my toes.
+<br>I am from those migrants--
+<br>reneged before I endured--
+<br>fault-miss from the heavyweights tree.
+<br>
+<br>I'm from the pot before the rest amid the brooch after the inch below the <br>inch below the mud room.
+<br>I am from the earl over the naught from the dressing room.
+<br>I am from the crude opposite the curd against the naught from the ip <br>underneath the press near the smudge against the courtroom.
+<br>I am from the depth from the oomph against the transmission control room.
+<br>I am from the jute in the boudoir.
+<br>I am from the sea among the corner office.
+<br>I am from the speech by the cook under the waiting room.
+<br>I am from the scout upon the urn against the office.
+<br>I am from the angst below the parlor.
+<br>I am from the guest across the pad on the pipe above the den upon the <br>transmission control room.
+<br>I am from the globe after the hawk at the dressing room.
+<br>I am from the dime around the hawk above the load inside the squirt above <br>the link from the family room.
+<br>(Vermilion, organic,
+<br>
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;when they almost drowned,
+<br>the newt my cousin mused to keep their hearing.
+<br>the newt my cousin mused to keep their hearing.
+<br>whose galling suds I enabled
+<br>From the forehead my mum lapped
+<br>
+<br>Down my shoji screen was a stark box
+<br>a sift of feigned faces
+<br>struggled before I grappled--
+<br>to cope around my gems.
+<br>
+<br>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and three how-to-do-it articles I can say myself.
+<br>struggled before I grappled--
+<br>I am from the crude opposite the mosque over the tune on the mesh inside the <br>smirk inside the sauna.
+<br>I am from the awe below the wine cellar.
+<br>I am from the fee under the pep after the cafeteria.
+<br>I am from the desk at the pot upon the conservatory.
+<br>I am from the eye along the snob opposite the garage.
+<br>I am from the mosque above the dressing room.
+<br>
+<br>Word Count: 50412

@@ -24,12 +24,12 @@ function renderPoem(){
   poem = "<h1>Where I'm From</h1>";
   poem += "<p>I am from " + lexicon.randomWord('nns', 2) + ",<br>";
   poem += "from " + sample(words.brands).capitalize() + " and " + lexicon.randomWord('nn', 6) + ".<br>";
-  poem += "I am from the " + lexicon.randomWord('nn', 1) + " under the " + sample(words.rooms) + ".<br>";
+  poem += "I am from the " + lexicon.randomWord('nn', 1) + " " + sample(words.prepositions) + " the " + sample(words.rooms) + ".<br>";
   poem += "(" + sample(words.colors).capitalize() + ", " + lexicon.randomWord('jj', 3) + ",<br>";
   poem += "it " + sample(words.senseWords) + " like " + sample(words.foods) + ".)<br>";
   poem += "I am from the " + sample(words.treeAdjectives) + " " + sample(words.trees) + "<br>";
   poem += "the " + sample(words.treeAdjectives) + " " + sample(words.treeAdjectives) + " " + sample(words.trees) + "<br>";
-  poem += "whose " + lexicon.randomWord('jj', 2) + " " + lexicon.randomWord('nns', 1) + " I remember<br>";
+  poem += "whose " + lexicon.randomWord('jj', 2) + " " + lexicon.randomWord('nns', 1) + " I " + lexicon.randomWord('vbd', 3) + "<br>";
   poem += "as if they were my own.<br>";
   poem += "<br>";
   poem += "I'm from " + sample(words.foods) + " and " + lexicon.randomWord('nns', 3) + ",<br>";
@@ -49,14 +49,11 @@ function renderPoem(){
   poem += "<br>";
   poem += sample(words.prepositions).capitalize() + " my " + sample(words.furniture) + " was a " + lexicon.randomWord('jj', 1) + " box<br>";
   poem += "holding " + lexicon.randomWord('jj', 1) + " " + lexicon.randomWord('nns', 2) + ",<br>";
-  poem += "a sift of lost faces<br>";
-  poem += "to drift " + sample(words.prepositions) + " my dreams.<br>";
-  poem += "I am from those moments--<br>";
+  poem += "a sift of " + lexicon.randomWord('jj', 1) + " faces<br>";
+  poem += "to " + lexicon.randomWord('vb', 1) + " " + sample(words.prepositions) + " my " + lexicon.randomWord('nns', 1) +".<br>";
+  poem += "I am from those " + lexicon.randomWord('nns', 2) + "--<br>";
   poem += lexicon.randomWord('vbd', 2) + " before I " + lexicon.randomWord('vbd', 2) + "--<br>";
-  poem += "leaf-fall from the family tree.<br></p>";
-  poem += "<br><p> poem generator by <a href='http://www.marydickson.com'>Mary Dickson</a> based on the original";
-  poem += " by <a href='http://www.georgeellalyon.com/where.html'>George Ella Lyon</a>."
-  poem += " A project for <a href='https://github.com/dariusk/NaNoGenMo-2015'>#NaNoGenMo."
+  poem += lexicon.randomWord('nn', 1) + "-" + lexicon.randomWord('vb', 1) + " from the " + lexicon.randomWord('nns', 3) + " tree.<br><br>";
   return poem;
 }
 

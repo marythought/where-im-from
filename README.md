@@ -3,8 +3,8 @@
 Full project discussion [here](https://github.com/dariusk/NaNoGenMo-2015/issues/49)
 
 ## Resulting Code
-* [Poem Generator](https://whereimfrom.herokuapp.com/)
-* [Final #NaNoGenMo2015 submission](https://github.com/marythought/where-im-from/blob/master/nngm.md)
+* [Poem Generator](https://whereimfrom.herokuapp.com/) <--source file [index.js](https://github.com/marythought/where-im-from/blob/master/index.js)
+* [Final #NaNoGenMo2015 submission](https://github.com/marythought/where-im-from/blob/master/nngm.md) <--source file [lib/poem.js](https://github.com/marythought/where-im-from/blob/master/lib/poem.js)
 
 ## Sources
 * original "Where I'm From" poem by George Ella Lyon: http://www.georgeellalyon.com/where.html

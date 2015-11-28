@@ -14,6 +14,10 @@ function sample(array){
   return array[Math.floor(Math.random()*array.length)];
 };
 
+function tab(){
+  return "&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;";
+};
+
 // poem += "from " + sample(word.brands) +  " and " + …
 
 function renderPoem(){
@@ -29,18 +33,18 @@ function renderPoem(){
   poem += "as if they were my own.<br>";
   poem += "<br>";
   poem += "I'm from " + sample(words.foods) + " and " + lexicon.randomWord('nns', 3) + ",<br>";
-  poem += "&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;from " + sample(words.names) + " and " + sample(words.names) +".<br>";
+  poem += tab() + "from " + sample(words.names) + " and " + sample(words.names) +".<br>";
   poem += "I'm from the " + sample(words.cliques) +"<br>";
-  poem += "&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and the " + sample(words.cliques) + ",<br>";
+  poem += tab() + "and the " + sample(words.cliques) + ",<br>";
   poem += "from '" + sample(words.interjections) + "' and '" + sample(words.interjections) + "'!<br>";
   poem += "I'm from '" + sample(words.quotes) + "'<br>";
-  poem += "&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;'" + sample(words.quotes) + "'<br>";
-  poem += "&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;and " + lexicon.randomWord('cd') + " " + sample(words.writings) + " I can say myself.<br>";
+  poem += tab() + "'" + sample(words.quotes) + "'<br>";
+  poem += tab() + "and " + lexicon.randomWord('cd') + " " + sample(words.writings) + " I can say myself.<br>";
   poem += "<br>";
   poem += "I'm from " + sample(words.cities) + " and " + sample(words.cities) + ",<br>";
   poem += sample(words.cookingWords) + " " + sample(words.foods) + " and " + sample(words.drinkAdjectives) + " " + sample(words.drinks) + ".<br>";
   poem += "From the " + sample(words.bodyParts) + " my " + sample(words.relatives) + " " + lexicon.randomWord('vbd', 1) + "<br>";
-  poem += "&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;" + sample(words.hurts) + ",<br>";
+  poem += tab() + sample(words.hurts) + ",<br>";
   poem += "the " + sample(words.animals) + " my " + sample(words.relatives) + " " + lexicon.randomWord('vbd', 1) + " to keep their " + sample(words.senseNouns) + ".<br>";
   poem += "<br>";
   poem += sample(words.prepositions).capitalize() + " my " + sample(words.furniture) + " was a " + lexicon.randomWord('jj', 1) + " box<br>";

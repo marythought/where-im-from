@@ -59,7 +59,7 @@ function renderPoem(){
   poem += "<a class='btn btn-primary' href='/'' role='button'>Regenerate</a><br>"
   poem += "<p><br> poem generator by <a href='http://www.marydickson.com'>Mary Dickson</a> based on the original";
   poem += " by <a href='http://www.georgeellalyon.com/where.html'>George Ella Lyon</a>.";
-  poem += " A project for <a href='https://github.com/dariusk/NaNoGenMo2015'>#NaNoGenMo, November 2015.</div>";
+  poem += " A project for <a href='https://github.com/dariusk/NaNoGenMo-2015'>#NaNoGenMo</a>, November 2015.</p></div>";
   return poem;
 }
 

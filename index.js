@@ -21,7 +21,9 @@ function tab(){
 // poem += "from " + sample(word.brands) +  " and " + …
 
 function renderPoem(){
-  poem = "<h1>Where I'm From</h1>";
+  poem = "<head><title>Where I'm From</title>"
+  poem += "<link rel='stylesheet' href='https://maxcdn.bootstrapcdn.com/bootstrap/3.3.5/css/bootstrap.min.css'></head>";
+  poem += "<div class='container'><h1>Where I'm From</h1>";
   poem += "<p>I am from " + lexicon.randomWord('nns', 2) + ",<br>";
   poem += "from " + sample(words.brands).capitalize() + " and " + lexicon.randomWord('nn', 6) + ".<br>";
   poem += "I am from the " + lexicon.randomWord('nn', 1) + " " + sample(words.prepositions) + " the " + sample(words.rooms) + ".<br>";
@@ -53,7 +55,11 @@ function renderPoem(){
   poem += "to " + lexicon.randomWord('vb', 1) + " " + sample(words.prepositions) + " my " + lexicon.randomWord('nns', 1) +".<br>";
   poem += "I am from those " + lexicon.randomWord('nns', 2) + "--<br>";
   poem += lexicon.randomWord('vbd', 2) + " before I " + lexicon.randomWord('vbd', 2) + "--<br>";
-  poem += lexicon.randomWord('nn', 1) + "-" + lexicon.randomWord('vb', 1) + " from the " + lexicon.randomWord('nns', 3) + " tree.<br><br>";
+  poem += lexicon.randomWord('nn', 1) + "-" + lexicon.randomWord('vb', 1) + " from the " + lexicon.randomWord('nns', 3) + " tree.<br><br></p>";
+  poem += "<a class='btn btn-primary' href='/'' role='button'>Regenerate</a><br>"
+  poem += "<p><br> poem generator by <a href='http://www.marydickson.com'>Mary Dickson</a> based on the original";
+  poem += " by <a href='http://www.georgeellalyon.com/where.html'>George Ella Lyon</a>.";
+  poem += " A project for <a href='https://github.com/dariusk/NaNoGenMo2015'>#NaNoGenMo, November 2015.</div>";
   return poem;
 }
 
